@@ -1,6 +1,6 @@
 # Atos dos Apóstolos
 
-Após a Ressureição do Senhor Jesus Cristo, ele se reuniu com os Apóstolos por mais de uma vez e, antes da Ascensão aos Céus, Jesus **soprou** sobre os Apóstolos o Espírito Santo para que eles fossem pelo mundo, pregando e divulgando o Evangelho como embaixadores do Reino de Deus.
+Segundo o livro do [Ato dos Apóstolos,, 1](https://fatima.org.br/biblia-online/?book=atos-dos-apostolos), após a Ressureição do Senhor Jesus Cristo, ele se reuniu com os Apóstolos por mais de uma vez e, antes da Ascensão aos Céus, Jesus **soprou** sobre os Apóstolos o Espírito Santo para que eles fossem pelo mundo, pregando e divulgando o Evangelho como embaixadores do Reino de Deus.
 
 <details>
 <summary> Clique aqui para ver uma observação sobre a palavra sopro </summary>
