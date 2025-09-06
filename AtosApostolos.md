@@ -1,7 +1,7 @@
 # Atos dos Apóstolos
 
 Após a Ressureição do Senhor Jesus Cristo, ele se reuniu com os Apóstolos por mais de uma vez e, antes da Ascensão aos Céus, Jesus <details>
-<summary>**soprou** </summary>
+<summary>soprou </summary>
 Observe que a palavra hebraica para Sopro é Ruach que é a mesma palavra usada para designar vento, respiração e espírito.  Por isso, o sopro de Jesus (que é Deus) é o Espírito Santo.
 </details>sobre os Apóstolos o Espírito Santo para que eles fossem pelo mundo, pregando e divulgando o Evangelho como embaixadores do Reino de Deus.
 
@@ -14,3 +14,4 @@ Observe que a palavra hebraica para Sopro é Ruach que é a mesma palavra usada 
 
 
 Por isso, o presente capítulo trata mais do que apenas do livro do Atos dos Apóstolos, mas 
+
