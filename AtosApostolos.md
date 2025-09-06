@@ -4,9 +4,10 @@ Após a Ressureição do Senhor Jesus Cristo, ele se reuniu com os Apóstolos po
 
 <details>
 <summary> Clique aqui para ver uma observação sobre a palavra sopro </summary>
-Observe que a palavra hebraica para Sopro é Ruach que é a mesma palavra usada para designar vento, respiração e espírito.  Por isso, o sopro de Jesus (que é Deus) é o Espírito Santo.
+<i>>Observe que a palavra hebraica para Sopro é Ruach que é a mesma palavra usada para designar vento, respiração e espírito.  Por isso, o sopro de Jesus (que é Deus) é o Espírito Santo</i>.
 </details>
 
 Assim, a descrição dso atos dos Apóstolos está espalhada em trechos de vários outros livros também canonizados, tais como, Apocalipse, Cartas do Apóstolo São Paulo e Carta de São Tiago, além, é claro, do próprio livro que se destina a descrever os [Atos dos Apóstolos](https://fatima.org.br/biblia-online/?book=atos-dos-apostolos).
 
 Por isso, o presente capítulo trata mais do que apenas do livro do Atos dos Apóstolos, mas 
+
