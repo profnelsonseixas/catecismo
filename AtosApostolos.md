@@ -52,11 +52,27 @@ Segundo o livro do [Ato dos Apóstolos 2, 1-11](https://fatima.org.br/biblia-onl
 
 <details>
 <summary>Clique aqui para ver um video explicativo da relação entre a festa de Pentecostes judaica e cristã</summary>
-[Pentecostes](https://www.youtube.com/watch?v=44b8E7AWG-s)
 
+<a href="https://www.youtube.com/watch?v=44b8E7AWG-s">Pentecostes</a>
 </details>
 
+Assim, nasce a Igreja como veremos mais detalhadamente a seguir.
+
 ### O que é a Igreja
+
+A Igreja é a comunidade de seguidores de Cristo, segundo os ensinamentos passados pelos Apóstolos após receberem o Espírito Santo em Pentecostes.
+
+Inicialmente, ela era formada basicamente por judeus que seguiam a TANAKH, que é uma sigla que reúne as palavras hebraicas Torah, Nevi'im e Ketuvim.  Estas palavras designam, respectivamente, os livros que compõem a Lei ou Ensinamento de Moisés; as advertências dos Profetas, e os demais Escritos que compunham a Bíblia Judaica.  Estes formam o Antigo Testamento Cristão.as palavras.
+
+<details>
+<summary> Clique aqui para ver uma distinção entre o Antigo Testamento e a Bíblia Judaica</summary>
+
+A Bíblia judaica mais usada na época de Jesus era escrita em grego koiné denominada <a href="https://pt.wikipedia.org/wiki/Septuaginta">Septuaginta</a>.  Tratava-se de uma tradução realizada por volta do século III a.C dos livros originalmente escritos em hebraico e aramaico para o grego koiné com a adição de textos escritos originalmente em grego koiné por comunidades judaicas que falavam nativamente grego koiné.
+</details>
+
+guardavam a Lei de Moisés, codificada nos cinco primeiros livros da Bíblia e as advertências dos Profetas. (Torah,), entendidos tal como Jesus Cristo explicou em substituição ao entendimentos dos Fariseus e Doutor
+
+
 
 [Atos dos Apóstolos 2, 1-11](https://claretianos.com.br/biblia-ave-maria-online/)
 
