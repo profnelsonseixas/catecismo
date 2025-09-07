@@ -61,16 +61,26 @@ Assim, nasce a Igreja como veremos mais detalhadamente a seguir.
 
 ### O que é a Igreja
 
-A Igreja é a comunidade de seguidores de Cristo, segundo os ensinamentos passados pelos Apóstolos após receberem o Espírito Santo em Pentecostes.
+A Igreja é a comunidade de seguidores de Cristo, segundo os ensinamentos passados pelos Apóstolos após receberem o Espírito Santo em Pentecostes.  Para se integrar à Igreja, tal como ensinado pelos Apóstolos, é preciso receber o sacramento de iniciação chamado Batismo, que torna o seguidor filho adotivo de Deus [Atos 2:38](https://fatima.org.br/biblia-online/?book=atos-dos-apostolos&chapter=2) e mais claramente ainda em [Mateus 28:18-20](https://fatima.org.br/biblia-online/?book=sao-mateus&chapter=28).
 
-Inicialmente, ela era formada basicamente por judeus que seguiam a TANAKH, que é uma sigla que reúne as palavras hebraicas Torah, Nevi'im e Ketuvim.  Estas palavras designam, respectivamente, os livros que compõem a Lei ou Ensinamento de Moisés; as advertências dos Profetas, e os demais Escritos que compunham a Bíblia Judaica.  Estes formam o Antigo Testamento Cristão.as palavras.
+Inicialmente, ela era formada basicamente por comunidades de judeus que, como todos os demais, seguiam a TANAKH, porém, usando a interpretação dada por Jesus Cristo em vez da interpretação dada pelos fariseus.
 
 <details>
-<summary> Clique aqui para ver uma distinção entre o Antigo Testamento e a Bíblia Judaica</summary>
+<summary>Clique aqui para saber o que é a TANAKH</summary>
 
-A Bíblia judaica mais usada na época de Jesus era escrita em grego koiné denominada <a href="https://pt.wikipedia.org/wiki/Septuaginta">Septuaginta</a>.  Tratava-se de uma tradução realizada por volta do século III a.C dos livros originalmente escritos em hebraico e aramaico para o grego koiné com a adição de textos escritos originalmente em grego koiné por comunidades judaicas que falavam nativamente grego koiné.
+TANAKH é uma sigla que reúne as palavras hebraicas Torah, Nevi'im e Ketuvim.  Estas palavras designam, respectivamente, os livros que compõem a Lei ou Ensinamento de Moisés; as advertências dos Profetas, e os demais Escritos que compunham a Bíblia Judaica.
 </details>
 
+<details>
+<summary> Clique aqui para ver a distinção entre o Antigo Testamento a Bíblia Judaica</summary>
+
+<p>A Bíblia judaica mais usada na época de Jesus era escrita em grego koiné denominada <a href="https://pt.wikipedia.org/wiki/Septuaginta">Septuaginta</a>.  Tratava-se de uma tradução para o grego koiné realizada por volta do século III a.C dos livros originalmente escritos em hebraico e aramaico acrescida de livros escritos até o século I a.C por comunidades judaicas da região de Alexandria, que falavam nativamente de grego koiné.  Estes livros contam a história e a revelação divina ocorrida entre o período anterior ao século III a.C e o período do Novo Testamento.</p>
+
+<p>A partir do século I d.C, os rabinos judeus convencionaram a excluir da Bíblia Judaica todos os livros originalmente escritos em grego koiné.  Curiosamente, Lutero optou por seguir a tradição judaica em oposição à tradição apostólica e, por isso, atualmente, a Bíblia Protestante também não possui os livros</p>
+
+</details>
+
+No entanto, 
 guardavam a Lei de Moisés, codificada nos cinco primeiros livros da Bíblia e as advertências dos Profetas. (Torah,), entendidos tal como Jesus Cristo explicou em substituição ao entendimentos dos Fariseus e Doutor
 
 
