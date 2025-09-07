@@ -42,15 +42,15 @@ A Páscoa judaica ((em hebraico, **pessach**, que significa passagem) é a celeb
 No dia de Sua Ressurreição, na sua primeira aparição aos Apóstolos, conforme nos relata [João, 20: 20-22](https://fatima.org.br/biblia-online/?book=sao-joao&chapter=20) Jesus Cristo **soprou** sobre os Apóstolos o Espírito Santo para que eles fossem pelo mundo, pregando e divulgando o Evangelho como embaixadores do Reino de Deus.
 
 <details>
-<summary> Clique aqui para ver uma observação sobre a palavra sopro </summary>
-Observe que a palavra hebraica para Sopro é Ruach que é a mesma palavra usada para designar vento, respiração e espírito.  Por isso, o sopro de Jesus (que é Deus) é o Espírito Santo.
+<summary> Clique aqui para entender por que Jesus soprou sobre os Apóstolos </summary>
+Observe que a palavra hebraica para Sopro é Ruach que é a mesma palavra usada para designar vento, respiração e espírito.  Assim, o sopro de Jesus (que é Deus) é entendido como o <i>Espírito Santo</i>.
 </details>
 
 <br/>
 
-Jesus se reuniu com os Apóstolos por diversas vezes por mais quarenta dias quando, então, se dá a [Ascensão aos Céus](https://www.vaticannews.va/pt/feriados-liturgicos/ascensao-do-senhor.html).
+De fato, Jesus se reuniu com os Apóstolos por diversas vezes por mais quarenta dias quando, então, se dá a [Ascensão aos Céus](https://www.vaticannews.va/pt/feriados-liturgicos/ascensao-do-senhor.html).
 
-Segundo o livro do [Ato dos Apóstolos 2, 1-11](https://fatima.org.br/biblia-online/?book=atos-dos-apostolos), quando dá festa judaica onde se oferecem as primícias da colheita ao Senhor, que se dá cinquenta dias após a Páscoa, o Espírito Santo desce sobre os Apóstolos, marcando a fundação da Igreja, chamada de Pentecostes, que, em grego, significa quinquagésimo dia.
+Segundo o livro do [Ato dos Apóstolos 2, 1-11](https://fatima.org.br/biblia-online/?book=atos-dos-apostolos), no período da festa judaica em que se oferecem as primícias da colheita ao Senhor, que se dá cinquenta dias após a Páscoa, o Espírito Santo desce sobre os Apóstolos, marcando a fundação da Igreja, chamada de Pentecostes, que, em grego koiné, significa quinquagésimo dia.
 
 [Veja o video explicativo da relação entre a festa de Pentecostes judaica e cristã](https://www.youtube.com/watch?v=44b8E7AWG-s)
 
