@@ -22,6 +22,7 @@ A Páscoa judaica ((em hebraico, Pessach) é a celebração da fuga do Egito, qu
 ### Cinquenta dias  após a morte de Jesus - Pentecostes, a fundação da Igreja
 
 [Veja o video](https://www.youtube.com/watch?v=lM2CEPp3VU4)
+
 Segundo o livro do [Ato dos Apóstolos,, 1](https://fatima.org.br/biblia-online/?book=atos-dos-apostolos), cinquenta dias após Sua morte, Jesus ascende aos céus.  No período entre a Ressurreição e esta Ascensão aos Céus, Jesus se reuniu com os Apóstolos por mais de uma vez.
 
 No dia da Ascensão, isto é, 50 dias após Sua morte, Jesus **soprou** sobre os Apóstolos o Espírito Santo para que eles fossem pelo mundo, pregando e divulgando o Evangelho como embaixadores do Reino de Deus.  Este fato marca a fundação da Igreja, chamada de Pentecostes, que, em grego, significa quinquagésimo dia.
