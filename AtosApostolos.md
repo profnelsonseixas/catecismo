@@ -35,10 +35,6 @@ A Páscoa judaica ((em hebraico, **pessach**, que significa passagem) é a celeb
 
 É no dia desta celebração que Jesus (o cordeiro perfeito de Deus) escolheu ser sacrificado e, ter o seu sangue, usado para marcar as portas das casas (o coração) de todos aqueles que desejam liberar-se da escravidão do pecado (em hebraico, **chet**, que significa errar o alvo ou desviar-se do caminho). Ou seja, se você erra o objetivo da vida, que é Amar a Deus sobre tudo em todo instante, todo lugar em tudo o que faz, você é um pecador e precisa do sacrifício de Jesus, para se livrar do erro e voltar ao caminho que conduz à Vida: ou seja, todos somos pecadores!  E Jesus nos salva (ou liberta) do pecado pelo sacrifício que fez, derramando seu sangue.
 
-### Cinquenta dias após a Ressurreição de Jesus - Pentecostes e a fundação da Igreja
-
-[Veja o video](https://www.youtube.com/watch?v=lM2CEPp3VU4)
-
 No dia de Sua Ressurreição, na sua primeira aparição aos Apóstolos, conforme nos relata [João, 20: 20-22](https://fatima.org.br/biblia-online/?book=sao-joao&chapter=20) Jesus Cristo **soprou** sobre os Apóstolos o Espírito Santo para que eles fossem pelo mundo, pregando e divulgando o Evangelho como embaixadores do Reino de Deus.
 
 <details>
@@ -46,14 +42,19 @@ No dia de Sua Ressurreição, na sua primeira aparição aos Apóstolos, conform
 Observe que a palavra hebraica para Sopro é Ruach que é a mesma palavra usada para designar vento, respiração e espírito.  Assim, o sopro de Jesus (que é Deus) é entendido como o <i>Espírito Santo</i>.
 </details>
 
-<br/>
+### Cinquenta dias após a Ressurreição de Jesus - Pentecostes e a fundação da Igreja
 
-De fato, Jesus se reuniu com os Apóstolos por diversas vezes por mais quarenta dias quando, então, se dá a [Ascensão aos Céus](https://www.vaticannews.va/pt/feriados-liturgicos/ascensao-do-senhor.html).
+[Veja o video](https://www.youtube.com/watch?v=lM2CEPp3VU4)
 
-Segundo o livro do [Ato dos Apóstolos 2, 1-11](https://fatima.org.br/biblia-online/?book=atos-dos-apostolos), no período da festa judaica em que se oferecem as primícias da colheita ao Senhor, que se dá cinquenta dias após a Páscoa, o Espírito Santo desce sobre os Apóstolos, marcando a fundação da Igreja, chamada de Pentecostes, que, em grego koiné, significa quinquagésimo dia.
+Após a Ressurreição, Jesus se reuniu com os Apóstolos por diversas vezes por mais quarenta dias quando, então, Ele [ascende aos Céus](https://www.vaticannews.va/pt/feriados-liturgicos/ascensao-do-senhor.html).
 
-[Veja o video explicativo da relação entre a festa de Pentecostes judaica e cristã](https://www.youtube.com/watch?v=44b8E7AWG-s)
+Segundo o livro do [Ato dos Apóstolos 2, 1-11](https://fatima.org.br/biblia-online/?book=atos-dos-apostolos), dez dias depois, no período da festa judaica em que se oferecem as primícias da colheita ao Senhor, que se dá cinquenta dias após a Páscoa, o Espírito Santo desce sobre os Apóstolos, marcando a fundação da Igreja, chamada de Pentecostes, que, em grego koiné, significa quinquagésimo dia.
 
+<details>
+<summary>Clique aqui para ver um video explicativo da relação entre a festa de Pentecostes judaica e cristã</summary>
+[Pentecostes](https://www.youtube.com/watch?v=44b8E7AWG-s)
+
+</details>
 
 ### O que é a Igreja
 
