@@ -52,6 +52,7 @@ Segundo o livro do [Ato dos Apóstolos 2, 1-11](https://fatima.org.br/biblia-onl
 
 <details>
 <summary>Clique aqui para ver um video explicativo da relação entre a festa de Pentecostes judaica e cristã</summary>
+<br>
 
 <a href="https://www.youtube.com/watch?v=44b8E7AWG-s">Pentecostes</a>
 </details>
