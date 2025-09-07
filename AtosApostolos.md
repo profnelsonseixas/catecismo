@@ -4,7 +4,7 @@
 
 1. ### [Páscoa, Paixão, morte e Ressurreição de Jesus Cristo](#páscoa-paixão-morte-e-ressurreição-de-jesus-cristo-1)
 
-2. ### [Cinquenta dias após a morte de Jesus - Pentecostes, a fundação da Igreja](#cinquenta-dias-após-a-morte-de-jesus---pentecostes-a-fundação-da-igreja))
+2. ### [Cinquenta dias após a morte de Jesus - Pentecostes, a fundação da Igreja](#cinquenta-dias-após-a-morte-de-jesus---pentecostes-a-fundação-da-igreja)
 
 3. ### [O que é a Igreja](#o-que-é-a-igreja)
 
@@ -44,4 +44,5 @@ Por isso, o presente capítulo trata mais do que apenas do livro do Atos dos Ap�
 
 
 ### Como orar
+
 
