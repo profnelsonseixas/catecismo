@@ -4,7 +4,7 @@
 
 1. ### [Páscoa, Paixão, morte e Ressurreição de Jesus Cristo](#páscoa-paixão-morte-e-ressurreição-de-jesus-cristo-1)
 
-2. ### [Cinquenta dias após a morte de Jesus - Pentecostes, a fundação da Igreja](#cinquenta-dias-após-a-morte-de-jesus---pentecostes-a-fundação-da-igreja)
+2. ### [Cinquenta dias após a morte de Jesus - Pentecostes e a fundação da Igreja](#cinquenta-dias-após-a-morte-de-jesus---pentecostes-e-a-fundação-da-igreja-1)
 
 3. ### [O que é a Igreja](#o-que-é-a-igreja)
 
@@ -19,7 +19,7 @@ A Páscoa judaica ((em hebraico, Pessach) é a celebração da fuga do Egito, qu
 
 É no dia desta celebração que Jesus (o cordeiro perfeito de Deus) escolheu ser sacrificado e, ter o seu sangue, usado para marcar as portas das casas (o coração) de todos aqueles que desejam liberar-se da escravidão do pecado (em hebraico, **chet**, que significa errar o alvo ou desviar-se do caminho). Ou seja, se você erra o objetivo da vida, que é Amar a Deus sobre tudo em todo instante, todo lugar em tudo o que faz, você é um pecador e precisa do sacrifício de Jesus, para se livrar do erro e voltar ao caminho que conduz à Vida: ou seja, todos somos pecadores!  E Jesus nos salva (ou livra) do pecado pelo sacrifício que fez, derramando seu sangue.
  
-### Cinquenta dias  após a morte de Jesus - Pentecostes, a fundação da Igreja
+### Cinquenta dias após a morte de Jesus - Pentecostes e a fundação da Igreja
 
 [Veja o video](https://www.youtube.com/watch?v=lM2CEPp3VU4)
 
