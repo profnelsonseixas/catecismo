@@ -96,9 +96,13 @@ Descendem destas comunidades iniciais as [Igrejas Católicas Orientais](https://
 
 ### O que é oração e sua importância
 
-Oração é, segundo Santa Teresa de Ávila, uma conversa com Deus.  É a base do Caminho ensinado por Jesus Cristo em [Lucas 18:1](https://fatima.org.br/biblia-online/?book=sao-lucas&chapter=18) e por São Pauloem [1 Carta aos Tessalonicenses 5:17](https://fatima.org.br/biblia-online/?book=i-tessalonicenses&chapter=5) a partir da qual se chega ao objetivo de [fazer a vontade do Pai a todo o tempo e em todo lugar[Mateus 7:21](https://fatima.org.br/biblia-online/?book=sao-mateus&chapter=7).  Mais explicitamente:
+Oração é, segundo Santa Teresa de Ávila, uma conversa com Deus.  É a base do Caminho ensinado por Jesus Cristo em [Lucas 18:1](https://fatima.org.br/biblia-online/?book=sao-lucas&chapter=18) e por São Paulo em [1 Carta aos Tessalonicenses 5:17](https://fatima.org.br/biblia-online/?book=i-tessalonicenses&chapter=5) a partir da qual se chega ao objetivo de [fazer a vontade do Pai a todo o tempo e em todo lugar[Mateus 7:21](https://fatima.org.br/biblia-online/?book=sao-mateus&chapter=7).  Mais explicitamente:
 
 "Nem todo aquele que me diz: Senhor, Senhor, entrará no Reino dos céus, mas sim aquele que faz a vontade de meu Pai que está nos céus." (Mateus 7:21)
+
+Mas, por que a oração é a base do Caminho?  Porque Jesus prega não apenas o cumprimento da Lei ([Mateus 5: 20](https://fatima.org.br/biblia-online/?book=sao-mateus&chapter=5)), mas que o cristão a tenha gravada no seu coração ([Mateus 5:27-28](https://fatima.org.br/biblia-online/?book=sao-mateus&chapter=5)).
+
+É este caminho cujo [jugo é suave e o fardo é leve](https://fatima.org.br/biblia-online/?book=sao-mateus&chapter=11) a que Ele se refere quando diz que cada um pegue sua cruz e o siga.
 
 ### Como orar
 
