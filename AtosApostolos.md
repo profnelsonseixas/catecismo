@@ -21,11 +21,9 @@ Por isso, o presente capítulo trata mais do que apenas do livro do Atos dos Ap�
 
 <details>
 <summary> Clique aqui para saber o que é Grego Koiné </summary>
-Grego Koiné é um dialeto da língua grega falada na região de Israel na época dos Apóstolos e que servia como língua de comunicação entre os diversos povos que habitavam esta região durante a dominação do Império Romano.  Ela era utilizada tal como se usa o Inglês atualmente para permitir a comunicação entre pessoas que falam línguas muito diversas.
+<p>Grego Koiné é um dialeto da língua grega falada na região de Israel na época dos Apóstolos e que servia como língua de comunicação entre os diversos povos que habitavam esta região durante a dominação do Império Romano.  Ela era utilizada tal como se usa o Inglês atualmente para permitir a comunicação entre pessoas que falam línguas muito diversas.
+</p>
 </details>
-
-<br/>
-
 
 ### Páscoa, Paixão, morte e Ressurreição de Jesus Cristo
 
@@ -39,7 +37,8 @@ No dia de Sua Ressurreição, na sua primeira aparição aos Apóstolos, conform
 
 <details>
 <summary> Clique aqui para entender por que Jesus soprou sobre os Apóstolos </summary>
-Observe que a palavra hebraica para Sopro é Ruach que é a mesma palavra usada para designar vento, respiração e espírito.  Assim, o sopro de Jesus (que é Deus) é entendido como o <i>Espírito Santo</i>.
+
+<p>Observe que a palavra hebraica para Sopro é Ruach que é a mesma palavra usada para designar vento, respiração e espírito.  Assim, o sopro de Jesus (que é Deus) é entendido como o <i>Espírito Santo</i>.</p>
 </details>
 
 ### Cinquenta dias após a Ressurreição de Jesus - Pentecostes e a fundação da Igreja
@@ -52,23 +51,24 @@ Segundo o livro do [Ato dos Apóstolos 2, 1-11](https://fatima.org.br/biblia-onl
 
 <details>
 <summary>Clique aqui para ver um video explicativo da relação entre a festa de Pentecostes judaica e cristã</summary>
-<br>
 
-<a href="https://www.youtube.com/watch?v=44b8E7AWG-s">Pentecostes</a>
+<p><a href="https://www.youtube.com/watch?v=44b8E7AWG-s">Pentecostes</a></p>
+
 </details>
 
 Assim, nasce a Igreja como veremos mais detalhadamente a seguir.
 
 ### O que é a Igreja
 
-A Igreja é a comunidade de seguidores de Cristo, segundo os ensinamentos passados pelos Apóstolos após receberem o Espírito Santo em Pentecostes.  Para se integrar à Igreja, tal como ensinado pelos Apóstolos, é preciso receber o sacramento de iniciação chamado Batismo, que torna o seguidor filho adotivo de Deus [Atos 2:38](https://fatima.org.br/biblia-online/?book=atos-dos-apostolos&chapter=2) e mais claramente ainda em [Mateus 28:18-20](https://fatima.org.br/biblia-online/?book=sao-mateus&chapter=28).
+A Igreja é a comunidade de seguidores de Cristo, segundo os ensinamentos passados pelos Apóstolos após receberem o Espírito Santo em Pentecostes.  Para se integrar à Igreja, tal como ensinado pelos Apóstolos, é preciso receber o sacramento de iniciação chamado Batismo, que torna o seguidor filho adotivo de Deus, conforme narra [Atos 2:38](https://fatima.org.br/biblia-online/?book=atos-dos-apostolos&chapter=2) e mais claramente ainda em [Mateus 28:18-20](https://fatima.org.br/biblia-online/?book=sao-mateus&chapter=28).
 
-Inicialmente, ela era formada basicamente por comunidades de judeus que, como todos os demais, seguiam a TANAKH, porém, usando a interpretação dada por Jesus Cristo em vez da interpretação dada pelos fariseus.
+Inicialmente, a igreja era formada basicamente por comunidades de judeus que, como todos os demais, seguiam a TANAKH, porém, usando a interpretação dada por Jesus Cristo em vez da interpretação dada pelos fariseus.
 
 <details>
 <summary>Clique aqui para saber o que é a TANAKH</summary>
 
-TANAKH é uma sigla que reúne as palavras hebraicas Torah, Nevi'im e Ketuvim.  Estas palavras designam, respectivamente, os livros que compõem a Lei ou Ensinamento de Moisés; as advertências dos Profetas, e os demais Escritos que compunham a Bíblia Judaica.
+<p>TANAKH é uma sigla que reúne as palavras hebraicas Torah, Nevi'im e Ketuvim.  Estas palavras designam, respectivamente, os livros que compõem a Lei ou Ensinamento de Moisés; as advertências dos Profetas, e os demais Escritos que compunham a Bíblia Judaica.
+</p>
 </details>
 
 <details>
@@ -80,9 +80,15 @@ TANAKH é uma sigla que reúne as palavras hebraicas Torah, Nevi'im e Ketuvim.  
 
 </details>
 
-No entanto, 
-guardavam a Lei de Moisés, codificada nos cinco primeiros livros da Bíblia e as advertências dos Profetas. (Torah,), entendidos tal como Jesus Cristo explicou em substituição ao entendimentos dos Fariseus e Doutor
+No entanto, como relatam [Mateus 28:19-20](https://fatima.org.br/biblia-online/?book=sao-mateus&chapter=28) e [Marcos 16:15](https://fatima.org.br/biblia-online/?book=sao-marcos&chapter=16), Jesus após a Ressurreição faz a Grande Comissão aos Apóstolos para que pregassem o **Evangelho** a todos os povos.
 
+O apóstolo São Paulo em [Gálatas 3:28](https://fatima.org.br/biblia-online/?book=galatas&chapter=3) deixa isso ainda mais claro e, desta forma, embora seja originalmente um Fariseu, acaba por selar a separação entre o Cristianismo e o Judaísmo, já que este tem um profundo conteúdo de separação em relação aos demais povos com base na ideia de se constituir no povo eleito de Deus.
+
+<details>
+<summary>Clique aqui para saber o que significa Evangelho</summary>
+
+<p>Evangelho é uma palavra em grego koiné que significa <i>boa notícia</i></p>
+</details>
 
 
 [Atos dos Apóstolos 2, 1-11](https://claretianos.com.br/biblia-ave-maria-online/)
