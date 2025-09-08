@@ -69,7 +69,9 @@ Inicialmente, a igreja era formada basicamente por comunidades de judeus que, co
 
 <p>TANAKH é uma sigla que reúne as palavras hebraicas Torah, Nevi'im e Ketuvim.  Estas palavras designam, respectivamente, os livros que compõem a Lei ou Ensinamento de Moisés; as advertências dos Profetas, e os demais Escritos que compunham a Bíblia Judaica.
 </p>
+<br/>
 </details>
+
 
 <details>
 <summary> Clique aqui para ver a distinção entre o Antigo Testamento a Bíblia Judaica</summary>
