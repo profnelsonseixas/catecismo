@@ -15,7 +15,7 @@
 
 ### Introdução
 
-A descrição dos atos dos Apóstolos após a Ascensão aos Céus de Jesus Cristo está espalhada em trechos de vários outros livros da Bíblia, tais como, Cartas do Apóstolo São Paulo, Carta de São Tiago, Apocalipse, além, é claro, do próprio livro que se destina a descrever os [Atos dos Apóstolos](https://fatima.org.br/biblia-online/?book=atos-dos-apostolos).
+A descrição dos atos dos Apóstolos após a [Ascensão aos Céus de Jesus Cristo](https://www.vaticannews.va/pt/feriados-liturgicos/ascensao-do-senhor.html)está espalhada em trechos de vários outros livros da Bíblia, tais como, Cartas do Apóstolo São Paulo, Carta de São Tiago, Apocalipse, além, é claro, do próprio livro que se destina a descrever os [Atos dos Apóstolos](https://fatima.org.br/biblia-online/?book=atos-dos-apostolos).
 
 Por isso, o presente capítulo trata mais do que apenas do livro do Atos dos Apóstolos, mas também discute trechos do Livro do Apocalipse.  A propósito, Apocalipse é uma palavra em Grego Koiné que significa **revelação** em português.
 
@@ -45,7 +45,7 @@ No dia de Sua Ressurreição, na sua primeira aparição aos Apóstolos, conform
 
 [Veja o video](https://www.youtube.com/watch?v=lM2CEPp3VU4)
 
-Após a Ressurreição, Jesus se reuniu com os Apóstolos por diversas vezes por mais quarenta dias quando, então, Ele [ascende aos Céus](https://www.vaticannews.va/pt/feriados-liturgicos/ascensao-do-senhor.html).
+Após a Ressurreição, Jesus se reuniu com os Apóstolos por diversas vezes por mais quarenta dias quando, então, Ele [ascende aos Céus](https://bibliotecacatolica.com.br/blog/formacao/ascensao-do-senhor/?_gl=1*ogp9xb*_up*MQ..*_gs*MQ..&gclid=CjwKCAjwt-_FBhBzEiwA7QEqyAC3YiK7MveFGyeagBnKAAwmG0GX1M9CpvCxxk0Dj4QGeHjKSt8IZxoC8AwQAvD_BwE&gbraid=0AAAAADDeeUHq1UCwOFqTgzHiSoS5xbgXc).
 
 Segundo o livro do [Ato dos Apóstolos 2, 1-11](https://fatima.org.br/biblia-online/?book=atos-dos-apostolos&chapter=2), dez dias depois, no período da festa judaica em que se oferecem as primícias da colheita ao Senhor, que se dá cinquenta dias após a Páscoa, o Espírito Santo desce sobre os Apóstolos, marcando a fundação da Igreja, chamada de Pentecostes, que, em grego koiné, significa quinquagésimo dia.
 
