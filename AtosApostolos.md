@@ -47,7 +47,7 @@ No dia de Sua Ressurreição, na sua primeira aparição aos Apóstolos, conform
 
 Após a Ressurreição, Jesus se reuniu com os Apóstolos por diversas vezes por mais quarenta dias quando, então, Ele [ascende aos Céus](https://www.vaticannews.va/pt/feriados-liturgicos/ascensao-do-senhor.html).
 
-Segundo o livro do [Ato dos Apóstolos 2, 1-11](https://fatima.org.br/biblia-online/?book=atos-dos-apostolos), dez dias depois, no período da festa judaica em que se oferecem as primícias da colheita ao Senhor, que se dá cinquenta dias após a Páscoa, o Espírito Santo desce sobre os Apóstolos, marcando a fundação da Igreja, chamada de Pentecostes, que, em grego koiné, significa quinquagésimo dia.
+Segundo o livro do [Ato dos Apóstolos 2, 1-11](https://fatima.org.br/biblia-online/?book=atos-dos-apostolos&chapter=2), dez dias depois, no período da festa judaica em que se oferecem as primícias da colheita ao Senhor, que se dá cinquenta dias após a Páscoa, o Espírito Santo desce sobre os Apóstolos, marcando a fundação da Igreja, chamada de Pentecostes, que, em grego koiné, significa quinquagésimo dia.
 
 <details>
 <summary>Clique aqui para ver um video explicativo da relação entre a festa de Pentecostes judaica e cristã</summary>
@@ -82,21 +82,24 @@ Inicialmente, a igreja era formada basicamente por comunidades de judeus que, co
 
 No entanto, como relatam [Mateus 28:19-20](https://fatima.org.br/biblia-online/?book=sao-mateus&chapter=28) e [Marcos 16:15](https://fatima.org.br/biblia-online/?book=sao-marcos&chapter=16), Jesus após a Ressurreição faz a Grande Comissão aos Apóstolos para que pregassem o **Evangelho** a todos os povos.
 
-
 <details>
 <summary>Clique aqui para saber o que significa Evangelho</summary>
 
 <p>Evangelho é uma palavra em grego koiné que significa <i>boa notícia</i></p>
 </details>
 
-O apóstolo São Paulo em [Gálatas 3:28](https://fatima.org.br/biblia-online/?book=galatas&chapter=3) deixa isso ainda mais claro e, desta forma, embora seja originalmente um Fariseu, acaba por selar a separação entre o Cristianismo e o Judaísmo, já que este tem um profundo conteúdo de separação em relação aos demais povos com base na ideia de se constituir no povo eleito de Deus.
+O apóstolo São Paulo em [Gálatas 3:28](https://fatima.org.br/biblia-online/?book=galatas&chapter=3) deixa isso ainda mais claro e, desta forma, embora seja originalmente um Fariseu, acaba por selar a separação entre o Cristianismo e o Judaísmo, já que este tem um profundo conteúdo dos seus seguidores em relação aos não seguidores com base na ideia de se constituírem como o povo eleito de Deus.
 
-[Atos dos Apóstolos 2, 1-11](https://claretianos.com.br/biblia-ave-maria-online/)
+Com a difusão do Cristianismo efetuada pelos Apóstolos, surgiram as primeiras comunidades cristãs por todo o mundo, da Europa até a Índia com igrejas apostólicas que existem até hoje.  Naturalmente, a primeira comunidade jazia em Jerusalém, tendo como líder a [São Tiago, cognominado o Justo](https://pt.wikipedia.org/wiki/Tiago,_o_Justo#:~:text=Acredita%2Dse%20que%20ele%20seja,e%20esteve%20com%20Sim%C3%A3o%20Pedro.), a quem é tradicionalmente atribuída a [Epístola de Tiago](https://fatima.org.br/biblia-online/?book=sao-tiago).
 
-
+Descendem destas comunidades iniciais as [Igrejas Católicas Orientais](https://fasbam.edu.br/2019/12/11/que-sao-as-igrejas-catolicas-orientais/).  Igualmente, também a Igreja Católica Latina descende de comunidades fundadas por São Pedro e São Paulo em Roma.  Há um total de vinte e três igrejas orientais as quais adicionadas à igreja latina formam o todo da Igreja Católica unificadas sob a direção espiritual do Bispo de Roma, chamado de Papa.
 
 ### O que é oração e sua importância
 
+Oração é, segundo Santa Teresa de Ávila, uma conversa com Deus.  É a base do Caminho ensinado por Jesus Cristo em [Lucas 18:1](https://fatima.org.br/biblia-online/?book=sao-lucas&chapter=18) e por São Pauloem [1 Carta aos Tessalonicenses 5:17](https://fatima.org.br/biblia-online/?book=i-tessalonicenses&chapter=5) a partir da qual se chega ao objetivo de [fazer a vontade do Pai a todo o tempo e em todo lugar[Mateus 7:21](https://fatima.org.br/biblia-online/?book=sao-mateus&chapter=7).  Mais explicitamente:
+
+"Nem todo aquele que me diz: Senhor, Senhor, entrará no Reino dos céus, mas sim aquele que faz a vontade de meu Pai que está nos céus." (Mateus 7:21)
 
 ### Como orar
 
+Aqui vão alguns conselhos do Padre Paulo Ricardo sobre como orar que ele reuniu no curso [Ensina-nos a Orar](https://www.youtube.com/watch?v=vkZ4_6uETvg&list=PLHklNC5Otp0HxghO9_SouSr_fbuH7Ke18), contendo muita inspiração na tradição mística católica de Santa Teresa de Ávila.
