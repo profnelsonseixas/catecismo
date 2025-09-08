@@ -76,7 +76,7 @@ TANAKH é uma sigla que reúne as palavras hebraicas Torah, Nevi'im e Ketuvim.  
 
 <p>A Bíblia judaica mais usada na época de Jesus era escrita em grego koiné denominada <a href="https://pt.wikipedia.org/wiki/Septuaginta">Septuaginta</a>.  Tratava-se de uma tradução para o grego koiné realizada por volta do século III a.C dos livros originalmente escritos em hebraico e aramaico acrescida de livros escritos até o século I a.C por comunidades judaicas da região de Alexandria, que falavam nativamente de grego koiné.  Estes livros contam a história e a revelação divina ocorrida entre o período anterior ao século III a.C e o período do Novo Testamento.</p>
 
-<p>A partir do século I d.C, os rabinos judeus convencionaram a excluir da Bíblia Judaica todos os livros originalmente escritos em grego koiné.  Curiosamente, Lutero optou por seguir a tradição judaica em oposição à tradição apostólica e, por isso, atualmente, a Bíblia Protestante também não possui os livros</p>
+<p>A partir do século I d.C, os rabinos judeus convencionaram a excluir da Bíblia Judaica todos os livros originalmente escritos em grego koiné.  Curiosamente, Lutero optou por seguir a tradição judaica em oposição à tradição apostólica e, por isso, atualmente, a Bíblia Protestante também não possui tais livros que são denominados pelas Igrejas Apostólicas de <a href="https://pt.wikipedia.org/wiki/Livros_deuterocan%C3%B4nicos">Deuterocanônicos</a>.</p>
 
 </details>
 
