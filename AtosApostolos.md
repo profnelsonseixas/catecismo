@@ -96,7 +96,7 @@ Descendem destas comunidades iniciais as [Igrejas Católicas Orientais](https://
 
 ### O que é oração e sua importância
 
-Oração é, segundo Santa Teresa de Ávila, uma conversa com Deus.  É a base do Caminho ensinado por Jesus Cristo em [Lucas 18:1](https://fatima.org.br/biblia-online/?book=sao-lucas&chapter=18) e por São Paulo em [1 Carta aos Tessalonicenses 5:17](https://fatima.org.br/biblia-online/?book=i-tessalonicenses&chapter=5) a partir da qual se chega ao objetivo de [fazer a vontade do Pai a todo o tempo e em todo lugar[Mateus 7:21](https://fatima.org.br/biblia-online/?book=sao-mateus&chapter=7).  Mais explicitamente:
+Oração é, segundo Santa Teresa de Ávila, uma conversa com Deus.  É a base do Caminho ensinado por Jesus Cristo em [Lucas 18:1](https://fatima.org.br/biblia-online/?book=sao-lucas&chapter=18) e por São Paulo em [1 Carta aos Tessalonicenses 5:17](https://fatima.org.br/biblia-online/?book=i-tessalonicenses&chapter=5) a partir da qual se chega ao objetivo de fazer a vontade do Pai a todo o tempo e em todo lugar como ensinado em [Mateus 7:21](https://fatima.org.br/biblia-online/?book=sao-mateus&chapter=7).  Mais explicitamente:
 
 "Nem todo aquele que me diz: Senhor, Senhor, entrará no Reino dos céus, mas sim aquele que faz a vontade de meu Pai que está nos céus." (Mateus 7:21)
 
