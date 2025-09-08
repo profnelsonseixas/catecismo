@@ -82,7 +82,6 @@ Inicialmente, a igreja era formada basicamente por comunidades de judeus que, co
 
 No entanto, como relatam [Mateus 28:19-20](https://fatima.org.br/biblia-online/?book=sao-mateus&chapter=28) e [Marcos 16:15](https://fatima.org.br/biblia-online/?book=sao-marcos&chapter=16), Jesus após a Ressurreição faz a Grande Comissão aos Apóstolos para que pregassem o **Evangelho** a todos os povos.
 
-O apóstolo São Paulo em [Gálatas 3:28](https://fatima.org.br/biblia-online/?book=galatas&chapter=3) deixa isso ainda mais claro e, desta forma, embora seja originalmente um Fariseu, acaba por selar a separação entre o Cristianismo e o Judaísmo, já que este tem um profundo conteúdo de separação em relação aos demais povos com base na ideia de se constituir no povo eleito de Deus.
 
 <details>
 <summary>Clique aqui para saber o que significa Evangelho</summary>
@@ -90,6 +89,7 @@ O apóstolo São Paulo em [Gálatas 3:28](https://fatima.org.br/biblia-online/?b
 <p>Evangelho é uma palavra em grego koiné que significa <i>boa notícia</i></p>
 </details>
 
+O apóstolo São Paulo em [Gálatas 3:28](https://fatima.org.br/biblia-online/?book=galatas&chapter=3) deixa isso ainda mais claro e, desta forma, embora seja originalmente um Fariseu, acaba por selar a separação entre o Cristianismo e o Judaísmo, já que este tem um profundo conteúdo de separação em relação aos demais povos com base na ideia de se constituir no povo eleito de Deus.
 
 [Atos dos Apóstolos 2, 1-11](https://claretianos.com.br/biblia-ave-maria-online/)
 
