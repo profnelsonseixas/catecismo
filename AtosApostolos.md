@@ -15,7 +15,7 @@
 
 ### Introdução
 
-A descrição dos atos dos Apóstolos após a [Ascensão aos Céus de Jesus Cristo](https://www.vaticannews.va/pt/feriados-liturgicos/ascensao-do-senhor.html)está espalhada em trechos de vários outros livros da Bíblia, tais como, Cartas do Apóstolo São Paulo, Carta de São Tiago, Apocalipse, além, é claro, do próprio livro que se destina a descrever os [Atos dos Apóstolos](https://fatima.org.br/biblia-online/?book=atos-dos-apostolos).
+A descrição dos atos dos Apóstolos após a [Ascensão aos Céus de Jesus Cristo](https://www.vaticannews.va/pt/feriados-liturgicos/ascensao-do-senhor.html) está espalhada em trechos de vários outros livros da Bíblia, tais como, Cartas do Apóstolo São Paulo, Carta de São Tiago, Apocalipse, além, é claro, do próprio livro que se destina a descrever os [Atos dos Apóstolos](https://fatima.org.br/biblia-online/?book=atos-dos-apostolos).
 
 Por isso, o presente capítulo trata mais do que apenas do livro do Atos dos Apóstolos, mas também discute trechos do Livro do Apocalipse.  A propósito, Apocalipse é uma palavra em Grego Koiné que significa **revelação** em português.
 
@@ -109,3 +109,4 @@ Mas, por que a oração é a base do Caminho?  Porque Jesus prega não apenas o 
 ### Como orar
 
 Aqui vão alguns conselhos do Padre Paulo Ricardo sobre como orar que ele reuniu no curso [Ensina-nos a Orar](https://www.youtube.com/watch?v=vkZ4_6uETvg&list=PLHklNC5Otp0HxghO9_SouSr_fbuH7Ke18), contendo muita inspiração na tradição mística católica de Santa Teresa de Ávila.
+
