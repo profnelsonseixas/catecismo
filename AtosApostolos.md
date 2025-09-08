@@ -4,7 +4,7 @@
 
 1. ### [Páscoa, Paixão, morte e Ressurreição de Jesus Cristo](#páscoa-paixão-morte-e-ressurreição-de-jesus-cristo-1)
 
-2. ### [Cinquenta dias após a morte de Jesus - Pentecostes e a fundação da Igreja](#cinquenta-dias-após-a-morte-de-jesus---pentecostes-e-a-fundação-da-igreja-1)
+2. ### [Cinquenta dias após a morte de Jesus - Pentecostes e a fundação da Igreja](#cinquenta-dias-após-a-ressurreição-de-jesus---pentecostes-e-a-fundação-da-igreja)
 
 3. ### [O que é a Igreja](#o-que-é-a-igreja-1)
 
@@ -109,4 +109,5 @@ Mas, por que a oração é a base do Caminho?  Porque Jesus prega não apenas o 
 ### Como orar
 
 Aqui vão alguns conselhos do Padre Paulo Ricardo sobre como orar que ele reuniu no curso [Ensina-nos a Orar](https://www.youtube.com/watch?v=vkZ4_6uETvg&list=PLHklNC5Otp0HxghO9_SouSr_fbuH7Ke18), contendo muita inspiração na tradição mística católica de Santa Teresa de Ávila.
+
 
