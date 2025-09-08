@@ -90,7 +90,7 @@ No entanto, como relatam [Mateus 28:19-20](https://fatima.org.br/biblia-online/?
 <p>Evangelho é uma palavra em grego koiné que significa <i>boa notícia</i></p>
 </details>
 
-O apóstolo São Paulo em [Gálatas 3:28](https://fatima.org.br/biblia-online/?book=galatas&chapter=3) deixa isso ainda mais claro e, desta forma, embora seja originalmente um Fariseu, acaba por selar a separação entre o Cristianismo e o Judaísmo, já que este tem profundamente arraigada a ideia de que seus seguidores devem-se separar dos não seguidores resultante da noção de que os judeus se seriam o povo eleito de Deus.
+O apóstolo São Paulo em [Gálatas 3:28](https://fatima.org.br/biblia-online/?book=galatas&chapter=3) deixa isso ainda mais claro e, desta forma, embora seja originalmente um Fariseu, acaba por selar a separação entre o Cristianismo e o Judaísmo, já que os seguidores do Judaísmo têm profundamente arraigada a ideia de viver separadamente dos não seguidores, ainda em virtude da noção de que os judeus seriam o povo eleito de Deus.
 
 Com a difusão do Cristianismo efetuada pelos Apóstolos, surgiram as primeiras comunidades cristãs por todo o mundo, da Europa até a Índia com igrejas apostólicas que existem até hoje.  Naturalmente, a primeira comunidade jazia em Jerusalém, tendo como líder a [São Tiago, cognominado o Justo](https://pt.wikipedia.org/wiki/Tiago,_o_Justo#:~:text=Acredita%2Dse%20que%20ele%20seja,e%20esteve%20com%20Sim%C3%A3o%20Pedro.), a quem é tradicionalmente atribuída a [Epístola de Tiago](https://fatima.org.br/biblia-online/?book=sao-tiago).
 
