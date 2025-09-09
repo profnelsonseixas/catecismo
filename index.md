@@ -1,5 +1,7 @@
 # Paróquia São Pedro Apóstolo
 
+## *Misericórdia quero e não sacrifícios e o **conhecimento de Deus** mais do que holocaustos*
+
 ## Programa de Catecismo de Adultos
 
 ### Catequistas Responsáveis: Luiz Sachser e Adriana Sachser
@@ -23,3 +25,4 @@ MANARA, Domingos.  Roteiro para Catequese com Adultos: batismo, primeira eucaris
 5. [Jesus morre por Amor](JesusMorrePorAmor.md)
 
 6. [Atos dos Apóstolos](AtosApostolos.md)
+
