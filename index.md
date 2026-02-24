@@ -1,8 +1,9 @@
-# Paróquia São Pedro Apóstolo
+#  Programa de Catecismo de Adultos
 
-## *Misericórdia quero e não sacrifícios e o **conhecimento de Deus** mais do que holocaustos* ([Oseias 6: 6](https://www.bibliaonline.com.br/acf/os/6) e [Mateus 9:13](https://padrepauloricardo.org/biblia/mt?cap=9&edition=matos-soares))
+*Misericórdia quero e não sacrifícios e o **conhecimento de Deus** mais do que holocaustos* ([Oseias 6: 6](https://www.bibliaonline.com.br/acf/os/6) e [Mateus 9:13](https://padrepauloricardo.org/biblia/mt?cap=9&edition=matos-soares))
 
-## Programa de Catecismo de Adultos
+## Paróquia São Pedro Apóstolo
+
 
 ### Catequista: Nelson Seixas dos Santos
 
@@ -27,6 +28,7 @@ SANTA SÉ. Catecismo da Igreja Católica, 5a. Ed. Brasília: Edições CNBB, 202
 11. [A escolha dos apóstolos](apostolos.md)
 12. [Ensinamentos de Jesus](ensinamentos.md)
 13. [Mistério Pascal](missa.md)
+
 
 
 
