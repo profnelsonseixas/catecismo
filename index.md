@@ -12,17 +12,20 @@ MANARA, Domingos.  Roteiro para Catequese com Adultos: batismo, primeira eucaris
 
 ### Sumário
 
-1. [O que é a bíblia](biblia.md)
+1.[Roteiro de catecismo resumido por perguntas e respostas](roteiro.md)
 
-2. [Formação do Novo Testamento](novotestamento.md)
+2. [O que é a bíblia](biblia.md)
 
-3. [Os Evangelhos](evangelhos.md)
+3. [Formação do Novo Testamento](novotestamento.md)
 
-4. [As Parábolas](parabolas.md)
+4. [Os Evangelhos](evangelhos.md)
 
-5. [Jesus morre por Amor](JesusMorrePorAmor.md)
+5. [As Parábolas](parabolas.md)
 
-6. [Atos dos Apóstolos](AtosApostolos.md)
+6. [Jesus morre por Amor](JesusMorrePorAmor.md)
+
+7. [Atos dos Apóstolos](AtosApostolos.md)
+
 
 
 
