@@ -10,4 +10,5 @@
 
 
 
-[Anterior](historiaAT.md)            [Próximo](biblia.md)
+[Anterior](historiaAT.md)         [Início](index.md)             [Próximo](biblia.md)
+
