@@ -17,4 +17,5 @@ A mais tradicional tradução para o português da Vulgata Latina foi realizada 
 
 
 
-[Anterior](novotestamento.md)            [Próximo](ensinamentos.md)
+[Anterior](novotestamento.md)     [Início](index.md)       [Próximo](ensinamentos.md)
+
