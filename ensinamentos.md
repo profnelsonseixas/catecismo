@@ -4,3 +4,6 @@ O núcleo central dos ensinamentos de Jesus pode ser resumido no Sermão da Mont
 1. [Mt. 5](https://padrepauloricardo.org/biblia/mt?cap=5&edition=matos-soares).
 2. [Mt 6](https://www.bibliaonline.com.br/acf/mt/6)
 3. [Mt 7](https://www.bibliaonline.com.br/acf/mt/7)
+
+
+[Anterior](roteiro.md)     [Início](index.md)       [Próximo](novotestamento.md)
