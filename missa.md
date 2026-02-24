@@ -1,8 +1,8 @@
-# Atos dos Apóstolos
+# Páscoa, Paixão, Morte, Ressurreição, Ascensão e a Fundação da Igreja em Pentecostes
 
 ## Sumário
 
-1. ### [Páscoa, Paixão, Morte e Ressurreição de Jesus Cristo](#páscoa-paixão-morte-e-ressurreição-de-jesus-cristo)
+1. ### [A Missa](#a-missa)
 2. ### [Ascensão](#ascensao)
 3. ### [Cinquenta dias após a morte de Jesus - Pentecostes e a fundação da Igreja](#cinquenta-dias-após-a-ressurreição-de-jesus---pentecostes-e-a-fundação-da-igreja)
 4. ### [O que é a Igreja](#o-que-é-a-igreja-1)
@@ -12,7 +12,7 @@
 
 
 
-### Páscoa, Missa, Paixão, Morte e Ressurreição de Jesus Cristo
+### A Missa
 
 [Veja o video](https://www.youtube.com/watch?v=bp71d1khmHI)
 
@@ -113,6 +113,7 @@ A oração mais característica do catolicismo é o terço mariano.  Trata-se de
 2. [Rainha dos Corações](https://rainhadoscoracoes.org.br/como-rezar-o-terco/?utm_source=grants&utm_medium=google&gad_source=1&gad_campaignid=17613395493&gbraid=0AAAAABRu5lNXUfPCuiMrD7jUDI5LX3VpT&gclid=Cj0KCQiAtfXMBhDzARIsAJ0jp3Cs6xbw_6DhM-dCnrlIKV8EWz8zy53Bw-OKHwRbcb-LAiv2lAgOP64aAlDcEALw_wcB)
 3. [Como rezar o terço](https://comorezaroterco.com/)
 4. [Senhora das Graças](https://senhoradasgracas.org.br/como-rezar-o-terco/?utm_source=google&utm_medium=grants.ansg&utm_campaign=como.rezar.o.terco.pc.c&gad_source=1&gad_campaignid=12493752865&gbraid=0AAAAAChe0mSrJ8Y_tsC16vxWvgn-KReUg&gclid=Cj0KCQiAtfXMBhDzARIsAJ0jp3Atv-ZH7n8CGxEbbMHd7I_1hl6ARN-iYWzbCud1i6kFklBlegto1aQaAs3xEALw_wcB)
+
 
 
 
