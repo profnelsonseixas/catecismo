@@ -2,13 +2,13 @@
 
 ## Sumário
 
-1. [A Bíblia Judaica](#a-biblia-judaica)
+1. [A Bíblia Judaica e seus diversos manuscritos](#a-biblia-judaica-e-seus-diversos-manuscritos)
 2. [Moisés no Êxodo](#moises-no-exodo)
 3. [Moisés chega à Terra Prometida: o Deuteronômio](#moises-chega-a-terra-prometida-o-deuteronomio)
 4. [Salmos de Davi](#salmos-de-davi)
 5. [Os livros sapienciais](#os-livros-sapienciais)
 
-## A Bíblia Judaica
+## A Bíblia Judaica e seus diversos manuscritos
 
 A palavra bíblia significava originalmente conjunto de livros ou biblioteca. Até o século II d.C, a bíblia era o conjunto de textos que contavam a história do povo de Israel, não havendo uma lista precisa e definitiva de textos (que é o que se chama de cânon) que seriam ou não parte da bíblia judaica.  Originalmente, os textos eram todos escritos em hebraico ou aramaico (que é uma lingua próxima do hebraico como o espanhol o é do português.  Porém, com a diáspora do povo de Israel, por volta do período de Alexandre da Macedonia, faz-se uma tradução destes textos para o grego koiné (a lingua mais falada no mundo na época).  Esta tradução foi denominada Septuaginta por supostamente ter sido produzida por 72 mestres israelitas dos textos da bíblia.
 
@@ -58,9 +58,7 @@ Os reformadores protestantes, porém, optaram por se insurgir também contra o e
 3. Cartas Apostólicas Diversas
 
 
-## Bíblia Católica
 
-[Bíblia Católica - Padre Matos Soares](https://padrepauloricardo.org/biblia/gn?cap=1&edition=matos-soares)
 <!-- ## Abraão, Isaac e Jacó -->
 
 ## Moisés no Êxodo 
@@ -87,6 +85,7 @@ Esta é a oração mais fundamental de todo o Antigo Testamento e resume todos o
 ### Sabedoria
 
 ### Eclesiástico
+
 
 
 
