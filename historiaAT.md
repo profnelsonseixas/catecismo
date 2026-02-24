@@ -51,13 +51,6 @@ Os reformadores protestantes, porém, optaram por se insurgir também contra o e
 
 **Observação**: O Antigo Testamento protestante é igual ao Texto Massorético Judeu, embora a contagem do número de livros difira.  O Antigo Testamento original (Septuaginta) conta com, ao menos, 46 livros (Católico), chegando a 81 livros (Igreja Ortodoxa Etíope).
 
-#### Novo Testamento (27 livros)
-
-1. Evangelhos
-2. Atos dos Apóstolos
-3. Cartas Apostólicas Diversas
-
-
 
 <!-- ## Abraão, Isaac e Jacó -->
 
@@ -85,6 +78,7 @@ Esta é a oração mais fundamental de todo o Antigo Testamento e resume todos o
 ### Sabedoria
 
 ### Eclesiástico
+
 
 
 
