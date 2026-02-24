@@ -145,14 +145,16 @@ A oração mais característica do catolicismo é o terço mariano.  Trata-se de
 4. [Senhora das Graças](https://senhoradasgracas.org.br/como-rezar-o-terco/?utm_source=google&utm_medium=grants.ansg&utm_campaign=como.rezar.o.terco.pc.c&gad_source=1&gad_campaignid=12493752865&gbraid=0AAAAAChe0mSrJ8Y_tsC16vxWvgn-KReUg&gclid=Cj0KCQiAtfXMBhDzARIsAJ0jp3Atv-ZH7n8CGxEbbMHd7I_1hl6ARN-iYWzbCud1i6kFklBlegto1aQaAs3xEALw_wcB)
 
 Alguns santos doutores da igreja e que fortemente influenciaram a vida de oração católica são:
-[Santo Inácio de Loyola](https://padrepauloricardo.org/blog/a-vida-do-grande-santo-inacio-de-loyola)
-[São Tomas de Aquino](https://bibliotecacatolica.com.br/blog/formacao/santo-tomas-de-aquino/)
-[Santa Teresa de Ávila](https://bibliotecacatolica.com.br/blog/devocao/vida-de-santa-teresa-davila/)
-[São João da Cruz](https://bibliotecacatolica.com.br/blog/devocao/sao-joao-da-cruz/)
-[Santa Catarina de Sena](https://bibliotecacatolica.com.br/blog/formacao/santa-catarina-de-sena/)
-[Santa Teresinha](https://bibliotecacatolica.com.br/blog/formacao/santa-teresinha-do-menino-jesus/)
-[Santa Faustina](https://www.santafaustina.com.br/)
-[São Josemaria Escrivá](https://bibliotecacatolica.com.br/blog/devocao/sao-josemaria-escriva/)
+
+- [Santo Inácio de Loyola](https://padrepauloricardo.org/blog/a-vida-do-grande-santo-inacio-de-loyola)
+- [São Tomas de Aquino](https://bibliotecacatolica.com.br/blog/formacao/santo-tomas-de-aquino/)
+- [Santa Teresa de Ávila](https://bibliotecacatolica.com.br/blog/devocao/vida-de-santa-teresa-davila/)
+- [São João da Cruz](https://bibliotecacatolica.com.br/blog/devocao/sao-joao-da-cruz/)
+- [Santa Catarina de Sena](https://bibliotecacatolica.com.br/blog/formacao/santa-catarina-de-sena/)
+- [Santa Teresinha](https://bibliotecacatolica.com.br/blog/formacao/santa-teresinha-do-menino-jesus/)
+- [Santa Faustina](https://www.santafaustina.com.br/)
+- [São Josemaria Escrivá](https://bibliotecacatolica.com.br/blog/devocao/sao-josemaria-escriva/)
+
 
 
 
