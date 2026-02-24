@@ -10,6 +10,8 @@
 
 MANARA, Domingos.  Roteiro para Catequese com Adultos: batismo, primeira eucaristia e crisma. Uberlândia: Editora A Partilha, 2014.
 
+SANTA SÉ. Catecismo da Igreja Católica, 5a. Ed. Brasília: Edições CNBB, 2022. Disponível em [link](https://www.vatican.va/archive/cathechism_po/index_new/indice_po.html).  Acesso 24/02/2026.
+
 ### Sumário
 
 1. [Roteiro de catecismo resumido por perguntas e respostas](roteiro.md)
@@ -26,6 +28,7 @@ MANARA, Domingos.  Roteiro para Catequese com Adultos: batismo, primeira eucaris
 12. [Ensinamentos de Jesus](ensinamentos.md)
 13. [Mistério Pascal](missa.md)
 14. [Maria, a tradição dos santos e o terço](santos.md)
+
 
 
 
