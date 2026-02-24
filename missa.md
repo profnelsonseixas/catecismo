@@ -7,8 +7,8 @@
 3. ### [Cinquenta dias após a morte de Jesus - Pentecostes e a fundação da Igreja](#cinquenta-dias-após-a-ressurreição-de-jesus---pentecostes-e-a-fundação-da-igreja)
 4. ### [O que é a Igreja](#o-que-é-a-igreja-1)
 5. ### [O que é oração e sua importância](#o-que-é-oração-e-sua-importância-1)
-6. ### [Como orar](#como-orar-1)
-7. ### [Maria, a tradição dos santos](#maria-e-a-tradicao-dos-santos)
+6. ### [Maria, a tradição dos santos](#maria-e-a-tradicao-dos-santos)
+7. ### [Como orar](#como-orar-1)
 
 
 
@@ -125,6 +125,7 @@ Aqui vão alguns conselhos do Padre Paulo Ricardo sobre como orar que ele reuniu
 Há também uma forma de oração cultivada por muitos santos que é chamada de **Lectio Divina**.  Veja abaixo duas explicações de como fazê-la para enriquecer sua vida espiritual
 1. [Lectio Divina no site Minha Biblioteca Católica](https://bibliotecacatolica.com.br/blog/formacao/lectio-divina/?utm_source=googleads&utm_medium=paid-traffic&utm_campaign=branding&utm_content=638921191139&utm_term=145765466764&gad_source=1&gad_campaignid=19119288439&gbraid=0AAAAADDeeUFJ9BCMhsb6EDDt-_d21K6LR&gclid=Cj0KCQiAtfXMBhDzARIsAJ0jp3Cw4iU8m4RU5nM4Qd67W6I8P0OjOB8TUNz5qJwSq4IbYS-FeXEmjKAaAtDjEALw_wcB)
 2. [Lectio Divina no site Missário](https://www.missario.com.br/artigos/lectio-divina-como-aplicar-na-sua-vida?gad_source=1&gad_campaignid=21266312571&gbraid=0AAAAAp7TBz4bfbZcue1glxJ5CWDekPI7-&gclid=Cj0KCQiAtfXMBhDzARIsAJ0jp3D5wROSuN1Ql4tqk5m3HWvCsxCtdppsTyi15xRnJTeOPbRFhtPNrEwaAqvQEALw_wcB)
+
 
 
 
