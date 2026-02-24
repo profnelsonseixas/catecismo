@@ -103,6 +103,25 @@ Oração é, segundo Santa Teresa de Ávila, uma conversa com Deus.  É a base d
 
 Mas, por que a oração é a base do Caminho?  Porque Jesus prega não apenas o cumprimento da Lei ([Mateus 5: 20](https://fatima.org.br/biblia-online/?book=sao-mateus&chapter=5)), mas que o cristão a tenha gravada no seu coração ([Mateus 5:27-28](https://fatima.org.br/biblia-online/?book=sao-mateus&chapter=5)).
 
+A oração visa pois:
+1. Obter misericórdia de Deus, isto é, um coração miserável, pobre, humilde, contendo acima de tudo o desejo de fazer a Vontade de Deus.  Esta é a purificação do coração de que Jesus falava
+2. Dar (Devolver) a Deus a graça que Ele nos concedeu com juros (Ver a parábola dos Talentos)
+3. Amar a Deus, isto é, fazer a vontade de Deus.
+
+### Exemplos de oração para misericórdia
+1. [Salmo 51](https://www.bibliaonline.com.br/acf/sl/51)
+2. [Oração de Jesus](https://pt.wikipedia.org/wiki/Ora%C3%A7%C3%A3o_de_Jesus), e
+3. [Terço da Divina Misericórdia](https://www.santafaustina.com.br/terco-da-divina-misericordia/).  
+
+### Exemplo de oração para ação de graças
+[Salmo 115](https://www.bibliaonline.com.br/acf/sl/115)
+
+###  Exemplo de oração de amor
+
+[Salmo 62(63)](https://padrepauloricardo.org/biblia/sl?cap=62&edition=matos-soares)
+
+[Ato de Adoração Eucarística](https://catequistasbrasil.com.br/o-que-devo-rezar-diante-do-santissimo-sacramento/)
+
 É este caminho cujo [jugo é suave e o fardo é leve](https://fatima.org.br/biblia-online/?book=sao-mateus&chapter=11) a que Ele se refere quando diz que cada um pegue sua cruz e o siga.
 
 ## Como orar
@@ -121,6 +140,7 @@ A oração mais característica do catolicismo é o terço mariano.  Trata-se de
 2. [Rainha dos Corações](https://rainhadoscoracoes.org.br/como-rezar-o-terco/?utm_source=grants&utm_medium=google&gad_source=1&gad_campaignid=17613395493&gbraid=0AAAAABRu5lNXUfPCuiMrD7jUDI5LX3VpT&gclid=Cj0KCQiAtfXMBhDzARIsAJ0jp3Cs6xbw_6DhM-dCnrlIKV8EWz8zy53Bw-OKHwRbcb-LAiv2lAgOP64aAlDcEALw_wcB)
 3. [Como rezar o terço](https://comorezaroterco.com/)
 4. [Senhora das Graças](https://senhoradasgracas.org.br/como-rezar-o-terco/?utm_source=google&utm_medium=grants.ansg&utm_campaign=como.rezar.o.terco.pc.c&gad_source=1&gad_campaignid=12493752865&gbraid=0AAAAAChe0mSrJ8Y_tsC16vxWvgn-KReUg&gclid=Cj0KCQiAtfXMBhDzARIsAJ0jp3Atv-ZH7n8CGxEbbMHd7I_1hl6ARN-iYWzbCud1i6kFklBlegto1aQaAs3xEALw_wcB)
+
 
 
 
