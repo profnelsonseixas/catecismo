@@ -10,8 +10,6 @@
 6. ## [Como orar](#como-orar)
 7. ## [Maria e a tradição dos santos](#maria-e-a-tradicao-dos-santos)
 
-
-
 ## A Missa e a Confissão
 
 [Veja o video](https://www.youtube.com/watch?v=bp71d1khmHI)
@@ -34,15 +32,13 @@ Neste mesmo momento, Jesus institui o [Sacramento da Confissão](https://bibliot
 1. [Exame de Consciência](https://bibliotecacatolica.com.br/blog/destaque/exame-de-consciencia/?utm_source=googleads&utm_medium=paid-traffic&utm_campaign=branding&utm_content=638921191139&utm_term=145765466764&gad_source=1&gad_campaignid=19119288439&gbraid=0AAAAADDeeUFJ9BCMhsb6EDDt-_d21K6LR&gclid=Cj0KCQiAtfXMBhDzARIsAJ0jp3BsykN9alj6_W9rURxX3yPi_0vDIuMr8FdOu1l9r7_Q_aY8phLF400aAudNEALw_wcB)
 2. [Guia para Confissão](https://opusdei.org/pt-pt/article/guia-breve-confissao/)
 
-
 ## Ascensão
 
 A descrição da [Ascensão aos Céus de Jesus Cristo](https://www.vaticannews.va/pt/feriados-liturgicos/ascensao-do-senhor.html) está espalhada em trechos de vários outros livros da Bíblia, tais como, Cartas do Apóstolo São Paulo, Carta de São Tiago, Apocalipse, além, é claro, do próprio livro que se destina a descrever os [Atos dos Apóstolos](https://fatima.org.br/biblia-online/?book=atos-dos-apostolos).
 
 A Ascensão do Senhor ocorre 40 dias após Sua Ressurreição, finalizando a vida pública de Jesus aqui na Terra com o mesmo período de tempo que marca o seu início com as tentações no deserto.
 
-
-### Cinquenta dias após a Ressurreição de Jesus - Pentecostes e a fundação da Igreja
+## Cinquenta dias após a Ressurreição de Jesus - Pentecostes e a fundação da Igreja
 
 [Veja o video](https://www.youtube.com/watch?v=lM2CEPp3VU4)
 
@@ -123,6 +119,7 @@ A oração mais característica do catolicismo é o terço mariano.  Trata-se de
 2. [Rainha dos Corações](https://rainhadoscoracoes.org.br/como-rezar-o-terco/?utm_source=grants&utm_medium=google&gad_source=1&gad_campaignid=17613395493&gbraid=0AAAAABRu5lNXUfPCuiMrD7jUDI5LX3VpT&gclid=Cj0KCQiAtfXMBhDzARIsAJ0jp3Cs6xbw_6DhM-dCnrlIKV8EWz8zy53Bw-OKHwRbcb-LAiv2lAgOP64aAlDcEALw_wcB)
 3. [Como rezar o terço](https://comorezaroterco.com/)
 4. [Senhora das Graças](https://senhoradasgracas.org.br/como-rezar-o-terco/?utm_source=google&utm_medium=grants.ansg&utm_campaign=como.rezar.o.terco.pc.c&gad_source=1&gad_campaignid=12493752865&gbraid=0AAAAAChe0mSrJ8Y_tsC16vxWvgn-KReUg&gclid=Cj0KCQiAtfXMBhDzARIsAJ0jp3Atv-ZH7n8CGxEbbMHd7I_1hl6ARN-iYWzbCud1i6kFklBlegto1aQaAs3xEALw_wcB)
+
 
 
 
