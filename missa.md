@@ -29,13 +29,10 @@ No dia de Sua Ressurreição, na sua primeira aparição aos Apóstolos, conform
 <p>Observe que a palavra hebraica para Sopro é Ruach que é a mesma palavra usada para designar vento, respiração e espírito.  Assim, o sopro de Jesus (que é Deus) é entendido como o <i>Espírito Santo</i>.</p>
 </details>
 
-Neste mesmo momento, Jesus institui o [Sacramento da Confissão](https://bibliotecacatolica.com.br/blog/formacao/sacramento-da-confissao/?srsltid=AfmBOopOlWlTjlrBcQBlOb1q0j2VeRuGDYW6VZZbAt3HY-Z0br-V5UeS), que é a prática na qual o cristão recebe o perdão de Deus pelos seus pecados.  
+Neste mesmo momento, Jesus institui o [Sacramento da Confissão](https://bibliotecacatolica.com.br/blog/formacao/sacramento-da-confissao/?srsltid=AfmBOopOlWlTjlrBcQBlOb1q0j2VeRuGDYW6VZZbAt3HY-Z0br-V5UeS), que é a prática na qual o cristão recebe o perdão de Deus pelos seus pecados.  Por isso, em virtude da importância deste sacramento, apresentamos abaixo dois materiais que facilitarão a sua Reconciliação com Deus.
 
-<details>
-<summary> Guia para se preparar para uma boa confissão</summary>
-<p>[Exame de Consciência]()</p>
-<p>[Guia para Confissão](https://opusdei.org/pt-pt/article/guia-breve-confissao/)</p>
-</details>
+1. [Exame de Consciência](https://bibliotecacatolica.com.br/blog/destaque/exame-de-consciencia/?utm_source=googleads&utm_medium=paid-traffic&utm_campaign=branding&utm_content=638921191139&utm_term=145765466764&gad_source=1&gad_campaignid=19119288439&gbraid=0AAAAADDeeUFJ9BCMhsb6EDDt-_d21K6LR&gclid=Cj0KCQiAtfXMBhDzARIsAJ0jp3BsykN9alj6_W9rURxX3yPi_0vDIuMr8FdOu1l9r7_Q_aY8phLF400aAudNEALw_wcB)
+2. [Guia para Confissão](https://opusdei.org/pt-pt/article/guia-breve-confissao/)
 
 
 ### Ascensão
@@ -122,6 +119,7 @@ A oração mais característica do catolicismo é o terço mariano.  Trata-se de
 2. [Rainha dos Corações](https://rainhadoscoracoes.org.br/como-rezar-o-terco/?utm_source=grants&utm_medium=google&gad_source=1&gad_campaignid=17613395493&gbraid=0AAAAABRu5lNXUfPCuiMrD7jUDI5LX3VpT&gclid=Cj0KCQiAtfXMBhDzARIsAJ0jp3Cs6xbw_6DhM-dCnrlIKV8EWz8zy53Bw-OKHwRbcb-LAiv2lAgOP64aAlDcEALw_wcB)
 3. [Como rezar o terço](https://comorezaroterco.com/)
 4. [Senhora das Graças](https://senhoradasgracas.org.br/como-rezar-o-terco/?utm_source=google&utm_medium=grants.ansg&utm_campaign=como.rezar.o.terco.pc.c&gad_source=1&gad_campaignid=12493752865&gbraid=0AAAAAChe0mSrJ8Y_tsC16vxWvgn-KReUg&gclid=Cj0KCQiAtfXMBhDzARIsAJ0jp3Atv-ZH7n8CGxEbbMHd7I_1hl6ARN-iYWzbCud1i6kFklBlegto1aQaAs3xEALw_wcB)
+
 
 
 
