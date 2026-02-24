@@ -26,7 +26,8 @@ MANARA, Domingos.  Roteiro para Catequese com Adultos: batismo, primeira eucaris
 12. [Ensinamentos de Jesus](ensinamentos.md)
 13. [Mistério Pascal](missa.md)
 14. [Maria, a tradição dos santos e o terço](santos.md)
-15. [Atos dos Apóstolos](AtosApostolos.md)
+
+
 
 
 
