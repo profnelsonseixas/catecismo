@@ -81,7 +81,8 @@ Esta é a oração mais fundamental de todo o Antigo Testamento e resume todos o
 
 
 
-[Anterior](roteiro.md)            [Próximo](novotestamento.md)
+[Anterior](roteiro.md)     [Início](index.md)       [Próximo](novotestamento.md)
+
 
 
 
