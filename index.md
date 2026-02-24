@@ -1,6 +1,6 @@
 # Paróquia São Pedro Apóstolo
 
-## *Misericórdia quero e não sacrifícios e o **conhecimento de Deus** mais do que holocaustos*
+## *Misericórdia quero e não sacrifícios e o **conhecimento de Deus** mais do que holocaustos* ([Oseias 6: 6](https://www.bibliaonline.com.br/acf/os/6) e [Mateus 9:13](https://padrepauloricardo.org/biblia/mt?cap=9&edition=matos-soares))
 
 ## Programa de Catecismo de Adultos
 
@@ -26,6 +26,7 @@ MANARA, Domingos.  Roteiro para Catequese com Adultos: batismo, primeira eucaris
 12. [Ensinamentos de Jesus](ensinamentos.md)
 13. [Mistério Pascal](missa.md)
 14. [Maria, a tradição dos santos e o terço](santos.md)
+
 
 
 
