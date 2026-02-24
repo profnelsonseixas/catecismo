@@ -64,10 +64,11 @@ Os reformadores protestantes, porém, optaram por se insurgir também contra o e
 
 ## Moisés chega à Terra Prometida: o Deuteronômio
 
+### [Os Dez Mandamentos revisitados](https://www.bibliaonline.com.br/acf/dt/5)
+
 ### [A Shemá](https://www.bibliaonline.com.br/acf/dt/6/4-9)
 
 Esta é a oração mais fundamental de todo o Antigo Testamento e resume todos os mandamentos. É importante notar que ela trata do amor a Deus a que Jesus se refere explicitado pela palavra hebraica **AHAVA**.  Esta palavra descreve um amor intenso, ativo, dedicado, compromissado e fiel; uma verdadeira Aliança.  Ou seja, a vontade de amar a Deus deve ter estas características.
-
 ## Salmos de Davi
 
 ## Os livros sapienciais e Jesus
@@ -83,6 +84,7 @@ Esta é a oração mais fundamental de todo o Antigo Testamento e resume todos o
 ### Eclesiástico
 
 ## 
+
 
 
 
