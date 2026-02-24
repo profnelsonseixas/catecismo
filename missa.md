@@ -108,6 +108,19 @@ A oração visa pois:
 2. Dar (Devolver) a Deus a graça que Ele nos concedeu com juros (Ver a parábola dos Talentos)
 3. Amar a Deus, isto é, fazer a vontade de Deus.
 
+
+É este caminho cujo [jugo é suave e o fardo é leve](https://fatima.org.br/biblia-online/?book=sao-mateus&chapter=11) a que Ele se refere quando diz que cada um pegue sua cruz e o siga.
+
+## Como orar
+
+
+
+Aqui vão alguns conselhos do Padre Paulo Ricardo sobre como orar que ele reuniu no curso [Ensina-nos a Orar](https://www.youtube.com/watch?v=vkZ4_6uETvg&list=PLHklNC5Otp0HxghO9_SouSr_fbuH7Ke18), contendo muita inspiração na tradição mística católica de Santa Teresa de Ávila.
+
+Há também uma forma de oração cultivada por muitos santos que é chamada de **Lectio Divina**.  Veja abaixo duas explicações de como fazê-la para enriquecer sua vida espiritual
+1. [Lectio Divina no site Minha Biblioteca Católica](https://bibliotecacatolica.com.br/blog/formacao/lectio-divina/?utm_source=googleads&utm_medium=paid-traffic&utm_campaign=branding&utm_content=638921191139&utm_term=145765466764&gad_source=1&gad_campaignid=19119288439&gbraid=0AAAAADDeeUFJ9BCMhsb6EDDt-_d21K6LR&gclid=Cj0KCQiAtfXMBhDzARIsAJ0jp3Cw4iU8m4RU5nM4Qd67W6I8P0OjOB8TUNz5qJwSq4IbYS-FeXEmjKAaAtDjEALw_wcB)
+2. [Lectio Divina no site Missário](https://www.missario.com.br/artigos/lectio-divina-como-aplicar-na-sua-vida?gad_source=1&gad_campaignid=21266312571&gbraid=0AAAAAp7TBz4bfbZcue1glxJ5CWDekPI7-&gclid=Cj0KCQiAtfXMBhDzARIsAJ0jp3D5wROSuN1Ql4tqk5m3HWvCsxCtdppsTyi15xRnJTeOPbRFhtPNrEwaAqvQEALw_wcB)
+
 ### Exemplos de oração para misericórdia
 1. [Salmo 51](https://www.bibliaonline.com.br/acf/sl/51)
 2. [Oração de Jesus](https://pt.wikipedia.org/wiki/Ora%C3%A7%C3%A3o_de_Jesus), e
@@ -122,16 +135,6 @@ A oração visa pois:
 
 [Ato de Adoração Eucarística](https://catequistasbrasil.com.br/o-que-devo-rezar-diante-do-santissimo-sacramento/)
 
-É este caminho cujo [jugo é suave e o fardo é leve](https://fatima.org.br/biblia-online/?book=sao-mateus&chapter=11) a que Ele se refere quando diz que cada um pegue sua cruz e o siga.
-
-## Como orar
-
-Aqui vão alguns conselhos do Padre Paulo Ricardo sobre como orar que ele reuniu no curso [Ensina-nos a Orar](https://www.youtube.com/watch?v=vkZ4_6uETvg&list=PLHklNC5Otp0HxghO9_SouSr_fbuH7Ke18), contendo muita inspiração na tradição mística católica de Santa Teresa de Ávila.
-
-Há também uma forma de oração cultivada por muitos santos que é chamada de **Lectio Divina**.  Veja abaixo duas explicações de como fazê-la para enriquecer sua vida espiritual
-1. [Lectio Divina no site Minha Biblioteca Católica](https://bibliotecacatolica.com.br/blog/formacao/lectio-divina/?utm_source=googleads&utm_medium=paid-traffic&utm_campaign=branding&utm_content=638921191139&utm_term=145765466764&gad_source=1&gad_campaignid=19119288439&gbraid=0AAAAADDeeUFJ9BCMhsb6EDDt-_d21K6LR&gclid=Cj0KCQiAtfXMBhDzARIsAJ0jp3Cw4iU8m4RU5nM4Qd67W6I8P0OjOB8TUNz5qJwSq4IbYS-FeXEmjKAaAtDjEALw_wcB)
-2. [Lectio Divina no site Missário](https://www.missario.com.br/artigos/lectio-divina-como-aplicar-na-sua-vida?gad_source=1&gad_campaignid=21266312571&gbraid=0AAAAAp7TBz4bfbZcue1glxJ5CWDekPI7-&gclid=Cj0KCQiAtfXMBhDzARIsAJ0jp3D5wROSuN1Ql4tqk5m3HWvCsxCtdppsTyi15xRnJTeOPbRFhtPNrEwaAqvQEALw_wcB)
-
 ## Maria e a tradição dos santos
 
 A oração mais característica do catolicismo é o terço mariano.  Trata-se de uma sequência de 50 repetições do Pai-Nosso e de Aves Marias entremeadas por outras breves orações.  Há também o Rosário, que é o tripo do Terço com 150 Aves Maria. Abaixo, apresentamos algumas alternativas de sites, ensinando a rezar o terço
@@ -140,6 +143,7 @@ A oração mais característica do catolicismo é o terço mariano.  Trata-se de
 2. [Rainha dos Corações](https://rainhadoscoracoes.org.br/como-rezar-o-terco/?utm_source=grants&utm_medium=google&gad_source=1&gad_campaignid=17613395493&gbraid=0AAAAABRu5lNXUfPCuiMrD7jUDI5LX3VpT&gclid=Cj0KCQiAtfXMBhDzARIsAJ0jp3Cs6xbw_6DhM-dCnrlIKV8EWz8zy53Bw-OKHwRbcb-LAiv2lAgOP64aAlDcEALw_wcB)
 3. [Como rezar o terço](https://comorezaroterco.com/)
 4. [Senhora das Graças](https://senhoradasgracas.org.br/como-rezar-o-terco/?utm_source=google&utm_medium=grants.ansg&utm_campaign=como.rezar.o.terco.pc.c&gad_source=1&gad_campaignid=12493752865&gbraid=0AAAAAChe0mSrJ8Y_tsC16vxWvgn-KReUg&gclid=Cj0KCQiAtfXMBhDzARIsAJ0jp3Atv-ZH7n8CGxEbbMHd7I_1hl6ARN-iYWzbCud1i6kFklBlegto1aQaAs3xEALw_wcB)
+
 
 
 
