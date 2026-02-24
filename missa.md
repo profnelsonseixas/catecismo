@@ -2,23 +2,25 @@
 
 ## Sumário
 
-1. ## [A Missa e a Confissão](#a-missa-e-a-confissao)
-2. ## [Ascensão](#ascensao)
-3. ## [Cinquenta dias após a morte de Jesus - Pentecostes e a fundação da Igreja](#cinquenta-dias-após-a-ressurreição-de-jesus---pentecostes-e-a-fundação-da-igreja)
-4. ## [O que é a Igreja](#o-que-e-a-igreja)
-5. ## [O que é oração e sua importância](#o-que-e-oração-e-sua-importancia)
-6. ## [Como orar](#como-orar)
-7. ## [Maria e a tradição dos santos](#maria-e-a-tradicao-dos-santos)
+1. ## [A Missa e a Eucaristia](#a-missa-e-a-eucaristia)
+2. ## [Sacramento da Confissão](#sacramento-da-confissao)
+3. ## [Ascensão](#ascensao)
+4. ## [Cinquenta dias após a morte de Jesus - Pentecostes e a fundação da Igreja](#cinquenta-dias-após-a-ressurreição-de-jesus---pentecostes-e-a-fundação-da-igreja)
+5. ## [O que é a Igreja](#o-que-e-a-igreja)
+6. ## [O que é oração e sua importância](#o-que-e-oração-e-sua-importancia)
+7. ## [Como orar](#como-orar)
+8. ## [Maria e a tradição dos santos](#maria-e-a-tradicao-dos-santos)
 
-## A Missa e a Confissão
+## A Missa e a Eucaristia
 
 [Veja o video](https://www.youtube.com/watch?v=bp71d1khmHI)
 
 A Páscoa judaica ((em hebraico, **pessach**, que significa passagem) é a celebração da fuga do Egito, quando o povo de Israel é instruído a sacrificar um cordeiro, sem defeito (isto é, perfeito) para obter a libertação da escravidão do Egito.  O sangue do cordeiro é usado para marcar as portas e casas de todos aqueles que desejam a libertação.  Assim, após ter enviado diversas pestes ao Egito e seu Rei não se ter curvado à vontade de Deus de liberar seu povo, como último recurso para convencer o Rei do Egito a libertar o povo de Israel, Deus envia seu Anjo Exterminador para matar todos os primogênitos das casas do Egito que não estejam com as portas marcadas com sangue de um cordeiro, macho, sem defeito (isto é, perfeito) tal como descrito em [Êxodo 12-15](https://fatima.org.br/biblia-online/?book=exodo&chapter=12).
 
-A Última Ceia é a instituição por Jesus da [Missa](https://bibliotecacatolica.com.br/blog/formacao/partes-da-missa/?srsltid=AfmBOoqJrT3OTWt43XZH2AQYfgdq1KVH7Lg9y5zQ3pBm6TLo-U2R_Z8E) como renovação incruenta do sacrifício que ele faria no dia seguinte. É no dia desta celebração que Jesus (o cordeiro perfeito de Deus) escolheu ser sacrificado e, ter o seu sangue, usado para marcar as portas das casas (o coração) de todos aqueles que desejam liberar-se da escravidão do pecado (em hebraico, **chet**, que significa errar o alvo ou desviar-se do caminho). Ou seja, se você erra o objetivo da vida, que é Amar a Deus sobre tudo em todo instante, todo lugar em tudo o que faz, você é um pecador e precisa do sacrifício de Jesus, para se livrar do erro e voltar ao caminho que conduz à Vida: ou seja, todos somos pecadores!  E Jesus nos salva (ou liberta) do pecado pelo sacrifício que fez, derramando seu sangue.
+A Última Ceia é a instituição por Jesus do [Sacramento da Eucaristia](https://bibliotecacatolica.com.br/blog/formacao/sacramento-da-eucaristia/) e a sua celebração se faz prioritariamente na [Missa](https://bibliotecacatolica.com.br/blog/formacao/partes-da-missa/?srsltid=AfmBOoqJrT3OTWt43XZH2AQYfgdq1KVH7Lg9y5zQ3pBm6TLo-U2R_Z8E) como renovação incruenta do sacrifício que ele faria no dia seguinte. É no dia desta celebração que Jesus (o cordeiro perfeito de Deus) escolheu ser sacrificado e, ter o seu sangue, usado para marcar as portas das casas (o coração) de todos aqueles que desejam liberar-se da escravidão do pecado (em hebraico, **chet**, que significa errar o alvo ou desviar-se do caminho). Ou seja, se você erra o objetivo da vida, que é Amar a Deus sobre tudo em todo instante, todo lugar em tudo o que faz, você é um pecador e precisa do sacrifício de Jesus, para se livrar do erro e voltar ao caminho que conduz à Vida: ou seja, todos somos pecadores!  E Jesus nos salva (ou liberta) do pecado pelo sacrifício que fez, derramando seu sangue.
 
- 
+Esta ú
+## Sacramento da Confissão 
 No dia de Sua Ressurreição, na sua primeira aparição aos Apóstolos, conforme nos relata [João, 20: 20-22](https://fatima.org.br/biblia-online/?book=sao-joao&chapter=20) Jesus Cristo **soprou** sobre os Apóstolos o Espírito Santo para que eles fossem pelo mundo, pregando e divulgando o Evangelho como embaixadores do Reino de Deus.
 
 <details>
@@ -119,6 +121,7 @@ A oração mais característica do catolicismo é o terço mariano.  Trata-se de
 2. [Rainha dos Corações](https://rainhadoscoracoes.org.br/como-rezar-o-terco/?utm_source=grants&utm_medium=google&gad_source=1&gad_campaignid=17613395493&gbraid=0AAAAABRu5lNXUfPCuiMrD7jUDI5LX3VpT&gclid=Cj0KCQiAtfXMBhDzARIsAJ0jp3Cs6xbw_6DhM-dCnrlIKV8EWz8zy53Bw-OKHwRbcb-LAiv2lAgOP64aAlDcEALw_wcB)
 3. [Como rezar o terço](https://comorezaroterco.com/)
 4. [Senhora das Graças](https://senhoradasgracas.org.br/como-rezar-o-terco/?utm_source=google&utm_medium=grants.ansg&utm_campaign=como.rezar.o.terco.pc.c&gad_source=1&gad_campaignid=12493752865&gbraid=0AAAAAChe0mSrJ8Y_tsC16vxWvgn-KReUg&gclid=Cj0KCQiAtfXMBhDzARIsAJ0jp3Atv-ZH7n8CGxEbbMHd7I_1hl6ARN-iYWzbCud1i6kFklBlegto1aQaAs3xEALw_wcB)
+
 
 
 
