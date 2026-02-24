@@ -3,11 +3,10 @@
 ## Sumário
 
 1. [A Bíblia Judaica](#a-biblia-judaica)
-2. [Abraão, Isaac e Jacó](#abraao-isaac-e-jaco)
-3. [Moisés no Êxodo](#moises-no-exodo)
-4. [Moisés chega à Terra Prometida: o Deuteronômio](#moises-chega-a-terra-prometida-o-deuteronomio)
-5. [Salmos de Davi](#salmos-de-davi)
-6. [Os livros sapienciais](#os-livros-sapienciais)
+2. [Moisés no Êxodo](#moises-no-exodo)
+3. [Moisés chega à Terra Prometida: o Deuteronômio](#moises-chega-a-terra-prometida-o-deuteronomio)
+4. [Salmos de Davi](#salmos-de-davi)
+5. [Os livros sapienciais](#os-livros-sapienciais)
 
 ## A Bíblia Judaica
 
@@ -58,9 +57,15 @@ Os reformadores protestantes, porém, optaram por se insurgir também contra o e
 2. Atos dos Apóstolos
 3. Cartas Apostólicas Diversas
 
-## Abraão, Isaac e Jacó
 
-## Moisés no Êxodo
+## Bíblia Católica
+
+[Bíblia Católica - Padre Matos Soares](https://padrepauloricardo.org/biblia/gn?cap=1&edition=matos-soares)
+<!-- ## Abraão, Isaac e Jacó -->
+
+## Moisés no Êxodo 
+
+[Os Dez Mandamentos](https://www.bibliaonline.com.br/acf/ex/20)
 
 ## Moisés chega à Terra Prometida: o Deuteronômio
 
@@ -83,7 +88,7 @@ Esta é a oração mais fundamental de todo o Antigo Testamento e resume todos o
 
 ### Eclesiástico
 
-## 
+
 
 
 
