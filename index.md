@@ -27,7 +27,8 @@ SANTA SÉ. Catecismo da Igreja Católica, 5a. Ed. Brasília: Edições CNBB, 202
 11. [A escolha dos apóstolos](apostolos.md)
 12. [Ensinamentos de Jesus](ensinamentos.md)
 13. [Mistério Pascal](missa.md)
-14. [Maria, a tradição dos santos e o terço](santos.md)
+
+
 
 
 
