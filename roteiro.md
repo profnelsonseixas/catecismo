@@ -79,6 +79,10 @@ Dar a outra face é expressão metafórica da agressão ao orgulho expressada po
 
 ## Há algo mais?
 
-Não.  Mas isso tudo será detalhado e explicado ao longo da catequese.
+Sim.  Deus é infinito e, embora ao longo da catequese detalhemos o explicado aqui, precisamos sempre lembrar da admoestação de [Eclesiastes 12:12](https://www.bibliaonline.com.br/acf/ec/12):
+
+*"E, demais disto, filho meu, atenta: não há limite para fazer muitos livros, e muito estudo é enfado da carne "*
+
+.
 
 [Anterior](index.md)            [Próximo](historiaAT.md)
