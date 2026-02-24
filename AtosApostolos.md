@@ -2,30 +2,17 @@
 
 ## Sumário
 
-1. ### [Páscoa, Paixão, morte e Ressurreição de Jesus Cristo](#páscoa-paixão-morte-e-ressurreição-de-jesus-cristo-1)
-
-2. ### [Cinquenta dias após a morte de Jesus - Pentecostes e a fundação da Igreja](#cinquenta-dias-após-a-ressurreição-de-jesus---pentecostes-e-a-fundação-da-igreja)
-
-3. ### [O que é a Igreja](#o-que-é-a-igreja-1)
-
-4. ### [O que é oração e sua importância](#o-que-é-oração-e-sua-importância-1)
-
-5. ### [Como orar](#como-orar-1)
+1. ### [Páscoa, Paixão, Morte e Ressurreição de Jesus Cristo](#páscoa-paixão-morte-e-ressurreição-de-jesus-cristo)
+2. ### [Ascensão](#ascensao)
+3. ### [Cinquenta dias após a morte de Jesus - Pentecostes e a fundação da Igreja](#cinquenta-dias-após-a-ressurreição-de-jesus---pentecostes-e-a-fundação-da-igreja)
+4. ### [O que é a Igreja](#o-que-é-a-igreja-1)
+5. ### [O que é oração e sua importância](#o-que-é-oração-e-sua-importância-1)
+6. ### [Como orar](#como-orar-1)
+7. ### [Maria, a tradição dos santos](#maria-a-tradicao-dos-santos)
 
 
-### Introdução
 
-A descrição dos atos dos Apóstolos após a [Ascensão aos Céus de Jesus Cristo](https://www.vaticannews.va/pt/feriados-liturgicos/ascensao-do-senhor.html) está espalhada em trechos de vários outros livros da Bíblia, tais como, Cartas do Apóstolo São Paulo, Carta de São Tiago, Apocalipse, além, é claro, do próprio livro que se destina a descrever os [Atos dos Apóstolos](https://fatima.org.br/biblia-online/?book=atos-dos-apostolos).
-
-Por isso, o presente capítulo trata mais do que apenas do livro do Atos dos Apóstolos, mas também discute trechos do Livro do Apocalipse.  A propósito, Apocalipse é uma palavra em Grego Koiné que significa **revelação** em português.
-
-<details>
-<summary> Clique aqui para saber o que é Grego Koiné </summary>
-<p>Grego Koiné é um dialeto da língua grega falada na região de Israel na época dos Apóstolos e que servia como língua de comunicação entre os diversos povos que habitavam esta região durante a dominação do Império Romano.  Ela era utilizada tal como se usa o Inglês atualmente para permitir a comunicação entre pessoas que falam línguas muito diversas.
-</p>
-</details>
-
-### Páscoa, Paixão, morte e Ressurreição de Jesus Cristo
+### Páscoa, Paixão, Morte e Ressurreição de Jesus Cristo
 
 [Veja o video](https://www.youtube.com/watch?v=bp71d1khmHI)
 
@@ -39,6 +26,18 @@ No dia de Sua Ressurreição, na sua primeira aparição aos Apóstolos, conform
 <summary> Clique aqui para entender por que Jesus soprou sobre os Apóstolos </summary>
 
 <p>Observe que a palavra hebraica para Sopro é Ruach que é a mesma palavra usada para designar vento, respiração e espírito.  Assim, o sopro de Jesus (que é Deus) é entendido como o <i>Espírito Santo</i>.</p>
+</details>
+
+### Ascensão
+
+A descrição dos atos dos Apóstolos após a [Ascensão aos Céus de Jesus Cristo](https://www.vaticannews.va/pt/feriados-liturgicos/ascensao-do-senhor.html) está espalhada em trechos de vários outros livros da Bíblia, tais como, Cartas do Apóstolo São Paulo, Carta de São Tiago, Apocalipse, além, é claro, do próprio livro que se destina a descrever os [Atos dos Apóstolos](https://fatima.org.br/biblia-online/?book=atos-dos-apostolos).
+
+Por isso, o presente capítulo trata mais do que apenas do livro do Atos dos Apóstolos, mas também discute trechos do Livro do Apocalipse.  A propósito, Apocalipse é uma palavra em Grego Koiné que significa **revelação** em português.
+
+<details>
+<summary> Clique aqui para saber o que é Grego Koiné </summary>
+<p>Grego Koiné é um dialeto da língua grega falada na região de Israel na época dos Apóstolos e que servia como língua de comunicação entre os diversos povos que habitavam esta região durante a dominação do Império Romano.  Ela era utilizada tal como se usa o Inglês atualmente para permitir a comunicação entre pessoas que falam línguas muito diversas.
+</p>
 </details>
 
 ### Cinquenta dias após a Ressurreição de Jesus - Pentecostes e a fundação da Igreja
@@ -109,5 +108,9 @@ Mas, por que a oração é a base do Caminho?  Porque Jesus prega não apenas o 
 ### Como orar
 
 Aqui vão alguns conselhos do Padre Paulo Ricardo sobre como orar que ele reuniu no curso [Ensina-nos a Orar](https://www.youtube.com/watch?v=vkZ4_6uETvg&list=PLHklNC5Otp0HxghO9_SouSr_fbuH7Ke18), contendo muita inspiração na tradição mística católica de Santa Teresa de Ávila.
+
+### Maria e a tradição dos santos
+
+
 
 
