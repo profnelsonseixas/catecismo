@@ -111,6 +111,14 @@ Aqui vão alguns conselhos do Padre Paulo Ricardo sobre como orar que ele reuniu
 
 ### Maria e a tradição dos santos
 
+A oração mais característica do catolicismo é o terço mariano.  Trata-se de uma sequência de 50 repetições do Pai-Nosso e de Aves Marias entremeadas por outras breves orações.  Há também o Rosário, que é o tripo do Terço com 150 Aves Maria. Abaixo, apresentamos algumas alternativas de sites, ensinando a rezar o terço
+
+1. [Aprenda a Rezar o Terço com o Padre Paulo Ricardo](https://www.youtube.com/watch?v=fSIr2iftPUo)
+2. [Rainha dos Corações](https://rainhadoscoracoes.org.br/como-rezar-o-terco/?utm_source=grants&utm_medium=google&gad_source=1&gad_campaignid=17613395493&gbraid=0AAAAABRu5lNXUfPCuiMrD7jUDI5LX3VpT&gclid=Cj0KCQiAtfXMBhDzARIsAJ0jp3Cs6xbw_6DhM-dCnrlIKV8EWz8zy53Bw-OKHwRbcb-LAiv2lAgOP64aAlDcEALw_wcB)
+3. [Como rezar o terço](https://comorezaroterco.com/)
+4. [Senhora das Graças](https://senhoradasgracas.org.br/como-rezar-o-terco/?utm_source=google&utm_medium=grants.ansg&utm_campaign=como.rezar.o.terco.pc.c&gad_source=1&gad_campaignid=12493752865&gbraid=0AAAAAChe0mSrJ8Y_tsC16vxWvgn-KReUg&gclid=Cj0KCQiAtfXMBhDzARIsAJ0jp3Atv-ZH7n8CGxEbbMHd7I_1hl6ARN-iYWzbCud1i6kFklBlegto1aQaAs3xEALw_wcB)
+
+
 
 
 
