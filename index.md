@@ -24,12 +24,9 @@ MANARA, Domingos.  Roteiro para Catequese com Adultos: batismo, primeira eucaris
 10. [As tentações no deserto e quaresma](tentacaoDeserto.md)
 11. [A escolha dos apóstolos](apostolos.md)
 12. [Ensinamentos de Jesus](ensinamentos.md)
-13. [Última Ceia e a Missa](missa.md)
-14. [Paixão e morte](paixao.md)
-15. [Ressurreição e Páscoa](ressureicao.md)
-16. [Ascensão](ascensao.md)
-17. [Pentecostes](pentecostes.md)
-18. [Maria, a tradição dos santos e o terço](santos.md)
-19. [Atos dos Apóstolos](AtosApostolos.md)
-20. 
+13. [Mistério Pascal](missa.md)
+14. [Maria, a tradição dos santos e o terço](santos.md)
+15. [Atos dos Apóstolos](AtosApostolos.md)
+
+
 
