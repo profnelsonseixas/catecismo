@@ -4,9 +4,7 @@
 
 ## Programa de Catecismo de Adultos
 
-### Catequistas Responsáveis: Luiz Sachser e Adriana Sachser
-
-#### Ajudante: Nelson Seixas dos Santos
+### Catequista: Nelson Seixas dos Santos
 
 #### Referência
 
@@ -25,6 +23,7 @@ MANARA, Domingos.  Roteiro para Catequese com Adultos: batismo, primeira eucaris
 5. [Jesus morre por Amor](JesusMorrePorAmor.md)
 
 6. [Atos dos Apóstolos](AtosApostolos.md)
+
 
 
 
