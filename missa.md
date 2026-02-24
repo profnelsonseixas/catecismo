@@ -19,7 +19,6 @@ A Páscoa judaica ((em hebraico, **pessach**, que significa passagem) é a celeb
 
 A Última Ceia é a instituição por Jesus do [Sacramento da Eucaristia](https://bibliotecacatolica.com.br/blog/formacao/sacramento-da-eucaristia/) e a sua celebração se faz prioritariamente na [Missa](https://bibliotecacatolica.com.br/blog/formacao/partes-da-missa/?srsltid=AfmBOoqJrT3OTWt43XZH2AQYfgdq1KVH7Lg9y5zQ3pBm6TLo-U2R_Z8E) como renovação incruenta do sacrifício que ele faria no dia seguinte. É no dia desta celebração que Jesus (o cordeiro perfeito de Deus) escolheu ser sacrificado e, ter o seu sangue, usado para marcar as portas das casas (o coração) de todos aqueles que desejam liberar-se da escravidão do pecado (em hebraico, **chet**, que significa errar o alvo ou desviar-se do caminho). Ou seja, se você erra o objetivo da vida, que é Amar a Deus sobre tudo em todo instante, todo lugar em tudo o que faz, você é um pecador e precisa do sacrifício de Jesus, para se livrar do erro e voltar ao caminho que conduz à Vida: ou seja, todos somos pecadores!  E Jesus nos salva (ou liberta) do pecado pelo sacrifício que fez, derramando seu sangue.
 
-Esta ú
 ## Sacramento da Confissão 
 No dia de Sua Ressurreição, na sua primeira aparição aos Apóstolos, conforme nos relata [João, 20: 20-22](https://fatima.org.br/biblia-online/?book=sao-joao&chapter=20) Jesus Cristo **soprou** sobre os Apóstolos o Espírito Santo para que eles fossem pelo mundo, pregando e divulgando o Evangelho como embaixadores do Reino de Deus.
 
@@ -121,6 +120,7 @@ A oração mais característica do catolicismo é o terço mariano.  Trata-se de
 2. [Rainha dos Corações](https://rainhadoscoracoes.org.br/como-rezar-o-terco/?utm_source=grants&utm_medium=google&gad_source=1&gad_campaignid=17613395493&gbraid=0AAAAABRu5lNXUfPCuiMrD7jUDI5LX3VpT&gclid=Cj0KCQiAtfXMBhDzARIsAJ0jp3Cs6xbw_6DhM-dCnrlIKV8EWz8zy53Bw-OKHwRbcb-LAiv2lAgOP64aAlDcEALw_wcB)
 3. [Como rezar o terço](https://comorezaroterco.com/)
 4. [Senhora das Graças](https://senhoradasgracas.org.br/como-rezar-o-terco/?utm_source=google&utm_medium=grants.ansg&utm_campaign=como.rezar.o.terco.pc.c&gad_source=1&gad_campaignid=12493752865&gbraid=0AAAAAChe0mSrJ8Y_tsC16vxWvgn-KReUg&gclid=Cj0KCQiAtfXMBhDzARIsAJ0jp3Atv-ZH7n8CGxEbbMHd7I_1hl6ARN-iYWzbCud1i6kFklBlegto1aQaAs3xEALw_wcB)
+
 
 
 
