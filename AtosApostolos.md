@@ -30,15 +30,10 @@ No dia de Sua Ressurreição, na sua primeira aparição aos Apóstolos, conform
 
 ### Ascensão
 
-A descrição dos atos dos Apóstolos após a [Ascensão aos Céus de Jesus Cristo](https://www.vaticannews.va/pt/feriados-liturgicos/ascensao-do-senhor.html) está espalhada em trechos de vários outros livros da Bíblia, tais como, Cartas do Apóstolo São Paulo, Carta de São Tiago, Apocalipse, além, é claro, do próprio livro que se destina a descrever os [Atos dos Apóstolos](https://fatima.org.br/biblia-online/?book=atos-dos-apostolos).
+A descrição da [Ascensão aos Céus de Jesus Cristo](https://www.vaticannews.va/pt/feriados-liturgicos/ascensao-do-senhor.html) está espalhada em trechos de vários outros livros da Bíblia, tais como, Cartas do Apóstolo São Paulo, Carta de São Tiago, Apocalipse, além, é claro, do próprio livro que se destina a descrever os [Atos dos Apóstolos](https://fatima.org.br/biblia-online/?book=atos-dos-apostolos).
 
-Por isso, o presente capítulo trata mais do que apenas do livro do Atos dos Apóstolos, mas também discute trechos do Livro do Apocalipse.  A propósito, Apocalipse é uma palavra em Grego Koiné que significa **revelação** em português.
+A Ascensão do Senhor ocorre 40 dias após Sua Ressurreição, finalizando a vida pública de Jesus aqui na Terra com o mesmo período de tempo que marca o seu início com as tentações no deserto.
 
-<details>
-<summary> Clique aqui para saber o que é Grego Koiné </summary>
-<p>Grego Koiné é um dialeto da língua grega falada na região de Israel na época dos Apóstolos e que servia como língua de comunicação entre os diversos povos que habitavam esta região durante a dominação do Império Romano.  Ela era utilizada tal como se usa o Inglês atualmente para permitir a comunicação entre pessoas que falam línguas muito diversas.
-</p>
-</details>
 
 ### Cinquenta dias após a Ressurreição de Jesus - Pentecostes e a fundação da Igreja
 
@@ -117,6 +112,7 @@ A oração mais característica do catolicismo é o terço mariano.  Trata-se de
 2. [Rainha dos Corações](https://rainhadoscoracoes.org.br/como-rezar-o-terco/?utm_source=grants&utm_medium=google&gad_source=1&gad_campaignid=17613395493&gbraid=0AAAAABRu5lNXUfPCuiMrD7jUDI5LX3VpT&gclid=Cj0KCQiAtfXMBhDzARIsAJ0jp3Cs6xbw_6DhM-dCnrlIKV8EWz8zy53Bw-OKHwRbcb-LAiv2lAgOP64aAlDcEALw_wcB)
 3. [Como rezar o terço](https://comorezaroterco.com/)
 4. [Senhora das Graças](https://senhoradasgracas.org.br/como-rezar-o-terco/?utm_source=google&utm_medium=grants.ansg&utm_campaign=como.rezar.o.terco.pc.c&gad_source=1&gad_campaignid=12493752865&gbraid=0AAAAAChe0mSrJ8Y_tsC16vxWvgn-KReUg&gclid=Cj0KCQiAtfXMBhDzARIsAJ0jp3Atv-ZH7n8CGxEbbMHd7I_1hl6ARN-iYWzbCud1i6kFklBlegto1aQaAs3xEALw_wcB)
+
 
 
 
