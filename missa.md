@@ -5,10 +5,10 @@
 1. ### [A Missa e a Confissão](#a-missa-e-a-confissao)
 2. ### [Ascensão](#ascensao)
 3. ### [Cinquenta dias após a morte de Jesus - Pentecostes e a fundação da Igreja](#cinquenta-dias-após-a-ressurreição-de-jesus---pentecostes-e-a-fundação-da-igreja)
-4. ### [O que é a Igreja](#o-que-é-a-igreja-1)
-5. ### [O que é oração e sua importância](#o-que-é-oração-e-sua-importância-1)
-6. ### [Maria, a tradição dos santos](#maria-e-a-tradicao-dos-santos)
-7. ### [Como orar](#como-orar-1)
+4. ### [O que é a Igreja](#o-que-é-a-igreja)
+5. ### [O que é oração e sua importância](#o-que-é-oração-e-sua-importância)
+6.### [Como orar](#como-orar)
+7. ### [Maria e a tradição dos santos](#maria-e-a-tradicao-dos-santos)
 
 
 
@@ -107,7 +107,13 @@ Mas, por que a oração é a base do Caminho?  Porque Jesus prega não apenas o 
 
 É este caminho cujo [jugo é suave e o fardo é leve](https://fatima.org.br/biblia-online/?book=sao-mateus&chapter=11) a que Ele se refere quando diz que cada um pegue sua cruz e o siga.
 
+### Como orar
 
+Aqui vão alguns conselhos do Padre Paulo Ricardo sobre como orar que ele reuniu no curso [Ensina-nos a Orar](https://www.youtube.com/watch?v=vkZ4_6uETvg&list=PLHklNC5Otp0HxghO9_SouSr_fbuH7Ke18), contendo muita inspiração na tradição mística católica de Santa Teresa de Ávila.
+
+Há também uma forma de oração cultivada por muitos santos que é chamada de **Lectio Divina**.  Veja abaixo duas explicações de como fazê-la para enriquecer sua vida espiritual
+1. [Lectio Divina no site Minha Biblioteca Católica](https://bibliotecacatolica.com.br/blog/formacao/lectio-divina/?utm_source=googleads&utm_medium=paid-traffic&utm_campaign=branding&utm_content=638921191139&utm_term=145765466764&gad_source=1&gad_campaignid=19119288439&gbraid=0AAAAADDeeUFJ9BCMhsb6EDDt-_d21K6LR&gclid=Cj0KCQiAtfXMBhDzARIsAJ0jp3Cw4iU8m4RU5nM4Qd67W6I8P0OjOB8TUNz5qJwSq4IbYS-FeXEmjKAaAtDjEALw_wcB)
+2. [Lectio Divina no site Missário](https://www.missario.com.br/artigos/lectio-divina-como-aplicar-na-sua-vida?gad_source=1&gad_campaignid=21266312571&gbraid=0AAAAAp7TBz4bfbZcue1glxJ5CWDekPI7-&gclid=Cj0KCQiAtfXMBhDzARIsAJ0jp3D5wROSuN1Ql4tqk5m3HWvCsxCtdppsTyi15xRnJTeOPbRFhtPNrEwaAqvQEALw_wcB)
 
 ### Maria e a tradição dos santos
 
@@ -118,13 +124,8 @@ A oração mais característica do catolicismo é o terço mariano.  Trata-se de
 3. [Como rezar o terço](https://comorezaroterco.com/)
 4. [Senhora das Graças](https://senhoradasgracas.org.br/como-rezar-o-terco/?utm_source=google&utm_medium=grants.ansg&utm_campaign=como.rezar.o.terco.pc.c&gad_source=1&gad_campaignid=12493752865&gbraid=0AAAAAChe0mSrJ8Y_tsC16vxWvgn-KReUg&gclid=Cj0KCQiAtfXMBhDzARIsAJ0jp3Atv-ZH7n8CGxEbbMHd7I_1hl6ARN-iYWzbCud1i6kFklBlegto1aQaAs3xEALw_wcB)
 
-### Como orar
 
-Aqui vão alguns conselhos do Padre Paulo Ricardo sobre como orar que ele reuniu no curso [Ensina-nos a Orar](https://www.youtube.com/watch?v=vkZ4_6uETvg&list=PLHklNC5Otp0HxghO9_SouSr_fbuH7Ke18), contendo muita inspiração na tradição mística católica de Santa Teresa de Ávila.
 
-Há também uma forma de oração cultivada por muitos santos que é chamada de **Lectio Divina**.  Veja abaixo duas explicações de como fazê-la para enriquecer sua vida espiritual
-1. [Lectio Divina no site Minha Biblioteca Católica](https://bibliotecacatolica.com.br/blog/formacao/lectio-divina/?utm_source=googleads&utm_medium=paid-traffic&utm_campaign=branding&utm_content=638921191139&utm_term=145765466764&gad_source=1&gad_campaignid=19119288439&gbraid=0AAAAADDeeUFJ9BCMhsb6EDDt-_d21K6LR&gclid=Cj0KCQiAtfXMBhDzARIsAJ0jp3Cw4iU8m4RU5nM4Qd67W6I8P0OjOB8TUNz5qJwSq4IbYS-FeXEmjKAaAtDjEALw_wcB)
-2. [Lectio Divina no site Missário](https://www.missario.com.br/artigos/lectio-divina-como-aplicar-na-sua-vida?gad_source=1&gad_campaignid=21266312571&gbraid=0AAAAAp7TBz4bfbZcue1glxJ5CWDekPI7-&gclid=Cj0KCQiAtfXMBhDzARIsAJ0jp3D5wROSuN1Ql4tqk5m3HWvCsxCtdppsTyi15xRnJTeOPbRFhtPNrEwaAqvQEALw_wcB)
 
 
 
