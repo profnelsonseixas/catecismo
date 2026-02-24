@@ -16,15 +16,15 @@ MANARA, Domingos.  Roteiro para Catequese com Adultos: batismo, primeira eucaris
 2. [História do Povo de Israell](historiaAT.md)
 3. [Formação do Novo Testamento](novotestamento.md)
 4. [O que é a bíblia cristã](biblia.md)
+5. [O contexto social e político em que Jesus nasceu](contextoJesus.md)
+6. [Maria, José e anunciação](anunciacao.md)
+7. [A encarnação: o nascimento de Jesus](encarnacao.md)
+8. [A Infância de Jesus](infanciaJesus.md)
+9. [O Batismo de Jesus](batismoJesus.md)
+10.[As tentações no deserto e quaresma](tentacaoDeserto.md)
+   [Atos dos Apóstolos](AtosApostolos.md)
+   
 
-5. 
-6. [Os Evangelhos](evangelhos.md)
-
-7. [As Parábolas](parabolas.md)
-
-8. [Jesus morre por Amor](JesusMorrePorAmor.md)
-
-9. [Atos dos Apóstolos](AtosApostolos.md)
 
 
 
