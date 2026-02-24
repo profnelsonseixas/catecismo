@@ -84,5 +84,5 @@ Sim.  Deus é infinito e, embora ao longo da catequese detalhemos o explicado aq
 *"E, demais disto, filho meu, atenta: não há limite para fazer muitos livros, e muito estudo é enfado da carne "*
 
 .
-
+[Início](index.md)      
 [Anterior](index.md)            [Próximo](historiaAT.md)
