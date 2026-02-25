@@ -45,7 +45,11 @@ Em termos concretos, a Física Moderna, na explicação da Mecânica Quântica d
 
 ## O que significa Amar a Deus?  
 
-Amar a DEUS é o ATO DE QUERER ("ter vontade INTENCIONAL; mas não necessariamente emoção")) agradar a Deus para a satisfação da vontade de Sua vontade.  Às vezes, o ato de amor é sofrido, porque ele vai contra nossa própria vontade.  Mas quando se medita dia e noite na lei de Deus (Salmo 1) e a .  Então, com a meditação e a prática (treinamento espiritual) , o ato intencional vai-se tornando uma energia alegre, uma vibração ou, de um jeito mais corriqueiro, um sentimento (o que é diferente de emoção).
+Amar a DEUS é o ATO DE QUERER ("ter vontade INTENCIONAL; mas não necessariamente emoção")) agradar a Deus para a satisfação da Sua vontade.  Às vezes, o ato de amor é sofrido, porque ele vai contra nossa própria vontade.  Mas quando se medita dia e noite na lei de Deus (Salmo 1) lentamente o nosso desejo vai passando a ser fazer a vontade de Deus e o sofrimento vai cessando mesmo diante do que para os incrédulos é apenas dor.  Por isso, estes tendem a achar loucura amar a Deus.  Mas o apóstolo São Paulo esclarece, em 1 Coríntios 1: 27:
+
+*Deus escolheu as coisas loucas deste mundo para confundir as sábias; e Deus escolheu as coisas fracas deste mundo para confundir as fortes*
+
+Então, com a meditação e a prática (treinamento espiritual) , o ato intencional vai-se tornando uma energia alegre, uma vibração ou, de um jeito mais corriqueiro, um sentimento (o que é diferente de emoção).
 
 ## E o que é a conversão ao Caminho?  
 
