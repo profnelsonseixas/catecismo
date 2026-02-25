@@ -3,7 +3,7 @@
 ## Sumário
 
 1. [A Bíblia Judaica e seus diversos manuscritos](#a-biblia-judaica-e-seus-diversos-manuscritos)
-2. [Moisés no Êxodo](#moises-no-exodo)
+2. [Moisés no Êxodo](#moises-no-êxodo)
 3. [Moisés chega à Terra Prometida: o Deuteronômio](#moises-chega-a-terra-prometida-o-deuteronomio)
 4. [Salmos de Davi](#salmos-de-davi)
 5. [Os livros sapienciais](#os-livros-sapienciais)
@@ -82,6 +82,7 @@ Esta é a oração mais fundamental de todo o Antigo Testamento e resume todos o
 
 
 [Anterior](roteiro.md)     [Início](index.md)       [Próximo](novotestamento.md)
+
 
 
 
