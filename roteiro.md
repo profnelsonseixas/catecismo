@@ -35,13 +35,13 @@ Nesta passagem, Deus se queixa da falta de amor e fidelidade.
 
 ## Quem é Deus?
 
-A melhor definição de Deus é dada por Ele mesmo: "Eu sou o que sou", isto é, Ele é Aquele que é.  É a própria essência do que é existir.  Assim, sem Deus, nada existiria e, portanto, se diz que Ele é o criador do universo e todas as coisas visíveis e invisíveis dentro dele.  Assim, Ele tem poder infinito (onipotente), sabe tudo (Onisciente) e está em todo lugar (Onipresente).
+A melhor definição de Deus é dada por Ele mesmo: "Eu sou o que sou", isto é, Ele é Aquele que é.  É a própria essência do que é existir.  Assim, sem Deus, nada existiria e, portanto, se diz que Ele é o criador do universo e de todas as coisas visíveis e invisíveis que existem dentro deste.  Assim, Deus tem poder infinito (onipotente), sabe tudo (Onisciente) e está em todo lugar (Onipresente).
 
 ## Mas Deus existe?
 
 Como vimos, Deus é a própria ideia de existência, estando além da própria questão.  Porém, de um jeito simples, pode-se dizer que sim, Deus existe.  Existem diversas provas metafísicas (isto é, filosóficas) de sua existência (Cf. São Tomas de Aquino).
 
-Em termos concretos, a Física Moderna, na explicação da Mecânica Quântica da criação do universo, atesta que este surgiu do nada completo (ou seja, não existia nada), não existindo sequer a noção de tempo para se poder perguntar o que existia ANTES do início do universo.  Sabe-se, porém, que neste nada, havia potência infinita (Onipotência), informação infinita (Onisciência), que o universo veio deste nada ("foi criado do nada") e, por isso, está dentro deste nada e do que o contém (Onipresença).  
+Em termos concretos, a Física Moderna, na explicação da Mecânica Quântica da criação do universo, atesta que este surgiu do nada completo (ou seja, não existia nada), não existindo sequer a noção de tempo para se poder perguntar o que existia ANTES do início do universo.  Sabe-se, porém, que neste nada, havia potência infinita (Onipotência), porque é necessária uma potência eletromagnética infinita para criar o universo.  Sabe-se também que, neste nada, há informação infinita (Onisciência), já que toda a informação presente no sistema físico que define o universo foi criada no surgimento do universo.  Por fim, foi dentro deste nada que foi criado o universo e este está dentro deste nada.  Como Deus criou o universo do nada, este está dentro daquele e Deus em todo lugar (Onipresença).  
 
 ## O que significa Amar a Deus?  
 
