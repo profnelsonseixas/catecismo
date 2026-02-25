@@ -7,7 +7,7 @@
 
 ## Quem foi Jesus Cristo?
 
-Historicamente, foi um mestre espiritual judeu cujo nascimento marca a contagem do início da Era Cristã.  Mas, para os cristãos, Jesus é muito mais do que isso.  Ele é o filho unigênito de Deus-Pai, que Lhe compartilha a essência (ou natureza), sendo, por isso, Ele mesmo o próprio Deus.  Jesus é também chamado de *Logos Divino*, isto é, o meio lógico (método ou palavra) por que Deus-Pai criou o universo.
+Historicamente, foi um mestre espiritual judeu cujo nascimento marca a contagem do início da Era Cristã.  Mas, para os cristãos, Jesus é muito mais do que isso.  Ele é o filho unigênito de Deus-Pai, que Lhe compartilha a essência (ou natureza), sendo, por isso, Ele mesmo o próprio Deus bem como o Espírito do Pai.  Jesus é também chamado de *Logos Divino*, isto é, o meio lógico (método ou palavra) por que Deus-Pai criou o universo.
 
 
 
