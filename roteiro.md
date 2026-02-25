@@ -7,7 +7,7 @@
 
 ## Quem foi Jesus Cristo?
 
-Para os céticos, foi um mestre espiritual judeu cujo nascimento marca a contagem do início da Era Cristã.  Para os cristãos, Ele é o filho unigênito de Deus-Pai, que Lhe compartilha a essência (ou natureza).  É também chamado de *Logos Divino*, isto é, o meio lógico (método ou palavra) por que Deus-Pai criou o universo.  Neste sentido, Jesus é Ele mesmo Deus.
+Historicamente, foi um mestre espiritual judeu cujo nascimento marca a contagem do início da Era Cristã.  Mas, para os cristãos, Jesus é muito mais do que isso.  Ele é o filho unigênito de Deus-Pai, que Lhe compartilha a essência (ou natureza), sendo, por isso, Ele mesmo o próprio Deus.  Jesus é também chamado de *Logos Divino*, isto é, o meio lógico (método ou palavra) por que Deus-Pai criou o universo.
 
 ## O que significa viver de modo saudável eternamente?  O cristão não morre?
 
@@ -65,9 +65,9 @@ Hà uma consequência principal - muitas vezes não compreendida - do ensinament
 
 ## Por que Amar ao próximo é consequência de Amar a Deus
 
-Porque Deus ama todas as suas criaturas e, por isso, as fez existir como o Gênesis relata no seu capítulo 1 em que descreve a criação, revelando que Deus, após criar cada coisa, dizia que era bom.  Ora, Deus é a própria bondade e ama o que é bom ("Deus se agrada do que que é bom).  Mas, quando criou o homem, o fez a sua própria imagem e semelhança e disse que era´"muito bom".  Ou seja, Deus ama muito o ser humano, mais do que as suas demais criaturas.
+Porque Deus ama todas as suas criaturas e, por isso, as fez existir como o Gênesis relata no seu capítulo 1 em que descreve a criação, revelando que Deus, após criar cada coisa, dizia que era bom.  Ora, Deus é a própria bondade e ama o que é bom ("Deus se agrada do que que é bom").  Mas, quando criou o homem, o fez a sua própria imagem e semelhança e disse que era´"muito bom".  Ou seja, Deus ama muito o ser humano, mais do que as suas demais criaturas.
 
-Ora, como Deus ama todas as suas criaturas, seguindo Seu exemplo, devemos amar toda a criação assim como é comum amarmos as pessoas amadas por quem amamos.  Mas, mais intensamente, devemos amar ao ser humano, Ele ama ao ser humano mais do que as outras de Suas obras ("o ser humano é muito bom").
+Ora, como Deus ama todas as suas criaturas, seguindo Seu exemplo, devemos amar toda a criação e aos seres humanos mais do que todas as demais criaturas.  De fato, é comum amarmos as pessoas que são amadas por quem amamos. 
 
 De outra forma, podemos dizer que nosso amor a Deus significa que amamos a bondade (que é o próprio Deus) e tudo o que é bom assim como Deus também ama tudo o que é bom.  Portanto, o amor a Deus nos leva a amar ao nosso semelhante que está espiritualmente próximo.  Quanto mais próximo espiritualmente, mais devemos amar.  Assim, amamos em primeiro lugar a Deus, que é quem mais próximo está de nós mesmos (mais próximos do que nós mesmos estamos).  Em seguida, devemos amar a nós mesmos (fazer a vontade de Deus para nós mesmos) e, em seguida, amar às demais pessoas com mais intensidade quanto maior for a proximidade espiritual delas com Deus e conosco (se estivermos no caminho do Senhor).
 
