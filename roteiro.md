@@ -9,9 +9,13 @@
 
 Historicamente, foi um mestre espiritual judeu cujo nascimento marca a contagem do início da Era Cristã.  Mas, para os cristãos, Jesus é muito mais do que isso.  Ele é o filho unigênito de Deus-Pai, que Lhe compartilha a essência (ou natureza), sendo, por isso, Ele mesmo o próprio Deus.  Jesus é também chamado de *Logos Divino*, isto é, o meio lógico (método ou palavra) por que Deus-Pai criou o universo.
 
+
+
 ## O que significa viver de modo saudável eternamente?  O cristão não morre?
 
 Jesus ensina que nós, humanos, somos corpo e alma e que assim como há doença do corpo há doença da alma.  A doença da alma é chamada **pecado** ("o salário do pecado é a morte").  Por isso, para ter saúde do corpo perfeita, é preciso, em primeiro lugar, curar a alma, que é imortal.  Então, aqueles que curarem a alma viverão nela felizes eternamente.
+
+Assim, Jesus é o Salvador da humanidade, pois ele nos salva dos nossos pecados e da morte se tivermos fé Nele. (Cf. Atos 16:31 e Tiago 2:17).  Cerca 700 anos antes, porém, o profeta [Isaías 53](https://biblia.paulus.com.br/biblia-pastoral/antigo-testamento/livros-profeticos/isaias/53) já nos tinha alertado sobre o meio inconcebível por que Jesus nos traria a salvação.
 
 ## Mas o corpo vai morrer?
 
