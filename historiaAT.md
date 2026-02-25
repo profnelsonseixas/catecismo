@@ -6,7 +6,7 @@
 2. [Moisés no Êxodo](#moisés-no-êxodo)
 3. [Moisés chega à Terra Prometida - a lei em Deuteronômio](#moisés-chega-à-terra-prometida-a-lei-em-deuterônomio)
 4. [Salmos de Davi](#salmos-de-davi)
-5. [Os livros sapienciais](#os-livros-sapienciais)
+5. [Os livros sapienciais e Jesus](#os-livros-sapienciais-e-jesus)
 
 ## A Bíblia Judaica e seus diversos manuscritos
 
@@ -69,19 +69,20 @@ Esta é a oração mais fundamental de todo o Antigo Testamento e resume todos o
 
 ## Os livros sapienciais e Jesus
 
-### Jó
+### [Jó](https://www.bibliaonline.com.br/acf/j%C3%B3)
 
-### Provérbios de Salomão
+### [Provérbios](https://www.bibliaonline.com.br/acf/pv)
 
-### Eclesiastes
+### [Eclesiastes](https://www.bibliaonline.com.br/acf/ec)
 
-### Sabedoria
+### [Sabedoria](https://www.bibliacatolica.com.br/biblia-ave-maria/sabedoria/1/)
 
-### Eclesiástico
+### [Eclesiástico](https://biblia.paulus.com.br/biblia-pastoral/antigo-testamento/livros-sapienciais/eclesiastico)
 
 
 
 [Anterior](roteiro.md)     [Início](index.md)       [Próximo](novotestamento.md)
+
 
 
 
