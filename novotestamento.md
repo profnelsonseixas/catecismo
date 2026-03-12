@@ -19,25 +19,17 @@ Somado a isto diversas heresias (isto é, ensinamentos *diferentes* dos ensiname
 
 O primeiro concílio da história ocorreu em 50 d.C ainda na época dos apóstolos e foi chamado [Concílio de Jerusalém](https://pt.wikipedia.org/wiki/Conc%C3%ADlio_de_Jerusal%C3%A9m).  Este concílio é narrado em [Atos dos Apóstolos 15](https://biblia.paulus.com.br/biblia-pastoral/novo-testamento/atos-dos-apostolos/15) e procura combater a chamada heresia judaizante que buscava impor aos pagãos (isto é, os não judeus) a Lei de Moisés como condição para a Salvação.
 
-
 O Apostolo Pedro, então, abre o Concílio, dá o testemunho de Deus o havia escolhido para levar o Evangelho aos pagãos e esclarece que a Graça Santificante desceu sobre os pagãos que não seguiam os costumes judeus (circuncisão).  Em seguida, o apóstolo Paulo apresenta seus testemunhos que confirmam o que o apóstolo Pedro havia falado.  O Bispo de Jerusalém (Tiago, *adelphos* do Senhor) resume o apresentado pelos apóstolos Pedro e Paulo, baixando o decreto que desobriga os pagãos de seguirem os costumes judaicos.
 
-Nesta mesma época, o apóstolo Paulo escreveria a [Primeira Epístola aos Tessalonicessenses](https://claretianos.com.br/biblia-ave-maria-online/), o primeiro texto do que viria a se tornar o Novo Testamento.  Pouco depois, perto do ano 64 d.C, é escrito do [Evangelho de Jesus Cristo Segundo Marcos](https://biblia.paulus.com.br/biblia-pastoral/novo-testamento/evangelhos/evangelho-segundo-sao-marcos/1/1).  E assim lentamente os diversos textos do que viria a ser o Novo Testamento vão sendo escritos, embora, para todos, Escritura fosse apenas os textos da Septuaginta.
+Nesta mesma época, o apóstolo Paulo escreveria a [Primeira Epístola aos Tessalonicessenses](https://claretianos.com.br/biblia-ave-maria-online/), o primeiro texto do que viria a se tornar o Novo Testamento.  Pouco depois, perto do ano 64 d.C, é escrito do [Evangelho de Jesus Cristo Segundo Marcos](https://biblia.paulus.com.br/biblia-pastoral/novo-testamento/evangelhos/evangelho-segundo-sao-marcos/1/1).  E assim lentamente os diversos textos do que viria a ser o Novo Testamento vão sendo escritos, embora, para todos, até aquele momento Escritura fosse apenas os textos da Septuaginta.
 
+Muitos outros livros de evangelização são escritos nos séculos I, II, III e IV d.C, mas os mais usados nas comunidades cristãs vão se consolidando como livros para ensinar o Evangelho, mas a forma principal de transmissão do Evangelho continua sendo a Tradição Oral - filtrada pelo entendimento dos Bispos, que eram os sucessores dos apóstolos.  Isto ocorria, porque a esmagadora maioria das pessoas eram analfabetas e, por isso, precisavam receber instrução oral dos bispos e presbíteros que selecionavam os textos mais de acordo com o ensinamento dos apóstolos para ensinar o povo a doutrina de Jesus.
 
-Outras heresias vão surgindo até que em 325 d.C, o [Concílio de Nicéia](https://pt.wikipedia.org/wiki/Primeiro_Conc%C3%ADlio_de_Niceia) estaebelece [Credo Niceno](https://pt.wikipedia.org/wiki/Credo_niceno) como o denominador comum para todas as comunidades cristãs.  Aqueles que não quiserem seguir os ensinamentos do concílio expressos no Credo são tidos como hereges e expulsos da comunhão com as comunidades cristãs fundadas pelos apóstolos (excomunhão).
+Com efeito, os ensinamentos até continuaram a ser passados oralmente de geração em geração.  Assim, várias heresias vão surgindo até que em 325 d.C, o [Concílio de Nicéia](https://pt.wikipedia.org/wiki/Primeiro_Conc%C3%ADlio_de_Niceia) estaebelece [Credo Niceno](https://pt.wikipedia.org/wiki/Credo_niceno) como o denominador comum para todas as comunidades cristãs.  Aqueles que não quiserem seguir os ensinamentos do concílio expressos no Credo são tidos como hereges e expulsos da comunhão com as comunidades cristãs fundadas pelos apóstolos (excomunhão).
 
-Com efeito, os ensinamentos até continuaram a ser passados oralmente de geração em geração, tendo, em princípio, a [Setptuaginta]() apenas como escritura e lentamente 
-Estes problemas de comunicação levaram ao primeiro Cisma Cristão ocorrido em 
-Já no séculoAté o ano 1.054
+De fato, o Novo Testamento - como o conhecemeos atualmente - só foi canonizado em 382. dC. no Concílio de Roma realizado sob os auspícios do Papa Dâmaso I quando foi dada a tarefa a São Jerônimo de efetuar a tradução para o Latim de todos os textos da bíblia, isto é, da Septuaginta (Antigo Testamento) e dos 27 livros que hoje compõem o Novo Testamento.
 
-
-
-
-É composto por 
-
-
-27 livros divididos basicamente em:
+Desta forma, fica fixada a Bíblia Cristã composta pela Septuaginta como Antigo Testamento e pelos 27 livros do que hoje conhecemos como Novo Testamento :
 1. Evangelhos
 2. Atos dos Apóstolos
 3. Cartas Apostólicas Diversas
@@ -48,6 +40,7 @@ Já no séculoAté o ano 1.054
 
 
 [Anterior](historiaAT.md)         [Início](index.md)             [Próximo](biblia.md)
+
 
 
 
