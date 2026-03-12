@@ -20,7 +20,7 @@ Somado a isto diversas heresias (isto é, ensinamentos *diferentes* dos ensiname
 O primeiro concílio da história ocorreu em 50 d.C ainda na época dos apóstolos e foi chamado [Concílio de Jerusalém](https://pt.wikipedia.org/wiki/Conc%C3%ADlio_de_Jerusal%C3%A9m).  Este concílio é narrado em [Atos dos Apóstolos 15](https://biblia.paulus.com.br/biblia-pastoral/novo-testamento/atos-dos-apostolos/15) e procura combater a chamada heresia judaizante que buscava impor aos pagãos (isto é, os não judeus) a Lei de Moisés como condição para a Salvação.
 
 
-O Apostolo Pedro, então, abre o Concílio, dá o testemunho de Deus o havia escolhido para levar o Evangelho aos pagãos e esclarece que a Graça Santificante desceu sobre os pagãos que não seguiam os costumes judeus (circuncisão).  A partir daí falam o apóstolo Paulo e o Bispo de Jerusalém (Tiago, o irmão do Senhor) resume o apresentado pelos apóstolos Pedro e Paulo, baixando o decreto que desobriga os pagãos de seguirem os costumes judaicos.
+O Apostolo Pedro, então, abre o Concílio, dá o testemunho de Deus o havia escolhido para levar o Evangelho aos pagãos e esclarece que a Graça Santificante desceu sobre os pagãos que não seguiam os costumes judeus (circuncisão).  Em seguida, o apóstolo Paulo apresenta seus testemunhos que confirmam o que o apóstolo Pedro havia falado.  O Bispo de Jerusalém (Tiago, *adelphos* do Senhor) resume o apresentado pelos apóstolos Pedro e Paulo, baixando o decreto que desobriga os pagãos de seguirem os costumes judaicos.
 
 Nesta mesma época, o apóstolo Paulo escreveria a [Primeira Epístola aos Tessalonicessenses](https://claretianos.com.br/biblia-ave-maria-online/), o primeiro texto do que viria a se tornar o Novo Testamento.  Pouco depois, perto do ano 64 d.C, é escrito do [Evangelho de Jesus Cristo Segundo Marcos](https://biblia.paulus.com.br/biblia-pastoral/novo-testamento/evangelhos/evangelho-segundo-sao-marcos/1/1).  E assim lentamente os diversos textos do que viria a ser o Novo Testamento vão sendo escritos, embora, para todos, Escritura fosse apenas os textos da Septuaginta.
 
@@ -48,6 +48,7 @@ Já no séculoAté o ano 1.054
 
 
 [Anterior](historiaAT.md)         [Início](index.md)             [Próximo](biblia.md)
+
 
 
 
