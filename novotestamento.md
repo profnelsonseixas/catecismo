@@ -1,6 +1,6 @@
 # Formação do Novo Testamento
 
-A história da formação do Novo Testamento é a história do início das primerias comuniddes de Seguidores do Caminho ensinado por Jesus Cristo.  Na verdade, Jesus não deixou escritos, sendo todo o seu ensinamento proferido por meio palestras dadas abertamente em diversos lugares a todos os que quisessem ouvir, ou seja, o ensinamento de Jesus é o início da **Tradição Oral da Igreja**.
+A história da formação do Novo Testamento é a história do início das primeiras comuniddes de Seguidores do Caminho ensinado por Jesus Cristo.  Na verdade, Jesus não deixou escritos, sendo todo o seu ensinamento proferido por meio palestras dadas abertamente em diversos lugares a todos os que quisessem ouvir, ou seja, o ensinamento de Jesus é o início da **Tradição Oral da Igreja**.
 
 Após a Ressurreição, tal como narrado no livro dos [Atos dos Apóstolos](https://fatima.org.br/biblia-online/?book=atos-dos-apostolos), os apóstolos se dirigem a diversos lugares dentro do Império Romano para pregar o Ensinamento de Jesus, isto é, a Boa Notícia, chamada em Grego Koiné de **Evangelho**.
 
@@ -8,7 +8,7 @@ Em cada lugar por onde passavam os apóstolos fundavam **comunidades cristãs** 
 
 **Assim, a Igreja que nasceu no Pentecostes foi evoluindo para se tornar em um agregado de comunidades lideradas cada uma delas por um único Bispo.**
 
-Ainda no primeiro século (provavelmente entre os anos 60dC e 100 d.C), ou seja, durante a vida do apóstolo João, foi redigido o livro chamado **Didaquê: a doutrian dos doze apóstolos** o qual foi considerado como o **primeiro catecismo cristão da história**.  Veja abaixo duas edições do Didaque
+Ainda no primeiro século (provavelmente entre os anos 60dC e 100 d.C), ou seja, durante a vida do apóstolo João, foi redigido o livro chamado **Didaquê: a doutrina dos doze apóstolos** o qual foi considerado como o **primeiro catecismo cristão da história**.  Veja abaixo duas edições do Didaque
 
 1. [Didaque do Rumo à Santidades](https://rumoasantidade.com.br/didaque-a-instrucao-dos-doze-apostolos/?srsltid=AfmBOoptbSgjfaHNXGdiOtEEI1BqvyPjo05kfc5LtS1dBIjRlIIKGWaO#google_vignette)
 2. [Didaque do Fiel Católico](https://www.ofielcatolico.com.br/2001/05/o-didaque-instrucao-dos-apostolos.html)
@@ -48,6 +48,7 @@ Já no séculoAté o ano 1.054
 
 
 [Anterior](historiaAT.md)         [Início](index.md)             [Próximo](biblia.md)
+
 
 
 
