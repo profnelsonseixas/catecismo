@@ -16,9 +16,9 @@ SANTA SÉ. Catecismo da Igreja Católica, 5a. Ed. Brasília: Edições CNBB, 202
 ### Sumário
 
 1. [Roteiro de catecismo resumido por perguntas e respostas](roteiro.md)
-2. [História do Povo de Israell](historiaAT.md)
-3. [Formação do Novo Testamento](novotestamento.md)
-4. [O que é a bíblia cristã](biblia.md)
+2. [HIstória do Povo Hebreu](hebreu.md)
+3. [História do Povo de Israel](historiaAT.md)
+4. [O que é a bíblia judaica](antigo_testamento.md)
 5. [O contexto social e político em que Jesus nasceu](contextoJesus.md)
 6. [Maria, José e anunciação](anunciacao.md)
 7. [A encarnação: o nascimento de Jesus](encarnacao.md)
@@ -28,6 +28,9 @@ SANTA SÉ. Catecismo da Igreja Católica, 5a. Ed. Brasília: Edições CNBB, 202
 11. [A escolha dos apóstolos](apostolos.md)
 12. [Ensinamentos de Jesus](ensinamentos.md)
 13. [Mistério Pascal](missa.md)
+14. [Formação do Novo Testamento](novotestamento.md)
+15. [O que é a bíblia cristã](biblia.md)
+16. []()
 
 
 
