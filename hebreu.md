@@ -78,6 +78,16 @@ São os caldeus que invadem o reino de Judá a partir de 605 a.C começam a depo
 
 Ciro, o Grande da Pérsia (atual Irã), invade a Babilônia e liberta os judeus em 539 a.C. 
 
+#### Os Judeus
+
+A partir de 539 a.C, os judeus constrõem o **Segundo Templo**, terminando-o por volta de 515 a.C.  [Esdras](https://biblia.paulus.com.br/biblia-pastoral/antigo-testamento/esdras-e-neemias/esdras/1) e [Neemias](https://biblia.paulus.com.br/biblia-pastoral/antigo-testamento/esdras-e-neemias/neemias/1) reformulam o culto em Jerusalém, que se consolida até 332 a.C com a conquista grega realizada por Alexandre, o Grande.
+
+Em 198 a.C, os judeus vivem sob o domínio dos descendentes do general grego Selêucida (Síria) e ocorre uma tentativa de impor os costumes gregos e a profanação do Segundo Templo, provocando a **Revolta dos Macabeus** em 167 a.C.  Em 63 a.C, o general romano Pompeu domina a Judéia, que passa ao domínio romano.
+
+
+
+
+
 
 
 
