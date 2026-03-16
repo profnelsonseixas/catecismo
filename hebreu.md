@@ -47,14 +47,53 @@ Israel tem vários filhos e é pai das 12 tribos que constituem o povo israelita
 
 Cada um destes filhos de Israel recebe uma parte da Terra de Canaã para formar sua tribo.  Levi, porém, não recebe terras para se tornar a tribo dos sacerdotes e José não recebe terras que são destinadas a seus filhos Efraim e Manassés, porque, vivendo entre 1915 a.C e 1806 a.C, foi vendido pelos seus irmãos como escravo ao Egito.
 
-José prospera no Egito e chega a se tornar governador recebe os israelitas que, devido a uma grande fome, migram para o Egito e, embora prosperem de início, são posteriormente escravizados.  Em torno de 1526 a.C e 1406 a.C, um homem chamado Moisés lidera o povo de Israel para um fuga do Egito de volta à Terra de Canaã tal como narrada em [Êxodo](https://biblia.paulus.com.br/biblia-pastoral/antigo-testamento/pentateuco/exodo). 
-
-### Babilônios
+#### Primeiro Império Babilônico
 Dentre as várias cidades do Império Acádio, uma delas se destaca: a **Babilônia**.  O predomínio desta cidade sobre as demais faz surgir o chamado **Império Babilônico** em cerca de 1.800 a.C.  Neste império, surge o primeiro código de leis escritas conhecidas na humanidade - denominado **Código de Hamurabi** em homenagem ao imperador Hamurabi sob cujo governo tais leis foram promulgadas.  Elas são lembradas pela máxima: *"Olho por olho e dente por dente"*.
 
+#### A escravidão no Egito
+José prospera no Egito e chega a se tornar governador recebe os israelitas que, devido a uma grande fome, migram para o Egito e, embora prosperem de início, são posteriormente escravizados.  Em torno de 1526 a.C e 1406 a.C, um homem chamado Moisés lidera o povo de Israel para um fuga do Egito de volta à Terra de Canaã tal como narrada em [Êxodo](https://biblia.paulus.com.br/biblia-pastoral/antigo-testamento/pentateuco/exodo). 
 
-### Assírios
+O livro do Êxodo relata que, antes de ser liberado pelo faraó do Egito houve a **passagem do anjo da morte** sobre a casa dos filhos dos egípcios.  Este evento marca a data da **Pesach** ou **Páscoa** israelita Isto se passa em torno do ano 1446 a.C.  O povo recebeu as tábuas da **Lei** dos 10 Mandamentos como descrito inicialmente no livro do Êxodo e depois no livro de [Deuteronômio 6:5](https://biblia.paulus.com.br/biblia-pastoral/antigo-testamento/pentateuco/deuteronomio/6/5). Aqui o povo de Israel passa a ser marcadamente monoteísta, que deveria ser santo (isto é, separado das práticas dos outros povos do mundo) como Deus é santo (separado da sua criação, isto é, do mundo).
+
+Depois, durante uma peregrinação de 40 anos no deserto na volta do Egito em direção à Canaâ, chegando perto do ano 1406 a.C. já liderados por Josué.
+
+#### Assírios
 Um outro povo - chamado de **Assírios** - invade então a Mesopotâmia e a domina de 1300 a.C até 600 a.C.  Os assírios eram ferozes guerreiros e foram os primeiros a usar armas de ferro em larga escala e carros de combate.  Além disso, seu imperador - rei Assurbanipal - criou a primeira biblioteca de grande porte na cidade de Nínive, conhecida como **Biblioteca de Nìnive**.
 
-Os assírios fundam o Segundo Império Babilônico
+#### O período dos Juízes de Israel
+
+De 1400 a.C até cerca de 1050 a.C, o povo de Israel viviam cada um na sua tribo e eram frequentemente atacados por tribos não israelitas vizinhas como, por exemplo, os filiteus.  Nesta época, a cada vez que um povo de Israel caía, surgia um juiz (isto é, um líder militar e espiritual, ungido por Deus para salvar o povo.
+
+#### O período de Reis de Israel: a destruição do reino do norte pelo Império Assírio
+
+De 1050 a.C até 930 a.C é o período de Reis, começando com o rei Saul, passando por Davi, Salomão, que constrói do Primeiro Templo.  Com a morte de Salomão em 930 a.C, o reino de Israel se divide no reino de Judá ao sul com capital em Jerusalém e contendo as tribos de Judá e Benjamin e o reino de Israel ao norte com capital em Samaria com as demais tribos.  A situação permanece a mesma a té 722 a.C quando o **Império Assírio** destrói o reino de Israel ao norte.
+
+#### Caldeus e o Cativeiro na Babilônia
+
+Por volta de 612 a.C, o povo Caldeu derrota os assírios e fundam o **Segundo Império Babilônico**.  Fundado pelo Imperador Nabopolassar, tem em seu filho Nabucodonosor Ii o mais famoso imperador com a realização de grandes obras como a **Torre de Babel** e os **Jardins Suspensos da Babilônia**.
+
+São os caldeus que invadem o reino de Judá a partir de 605 a.C começam a deportar judeus para a Babilônia, incluindo aí, o Profeta Daniel.  Em 586 a.C, ocorre a destruição de Jerusalém e do Primeiro Templo, levando praticamente todos os judeus para o **Cativeiro da Babilônia**.
+
+#### O Império Persa e o fim do Cativeiro na Babilônia
+
+Ciro, o Grande da Pérsia (atual Irã), invade a Babilônia e liberta os judeus em 539 a.C. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
