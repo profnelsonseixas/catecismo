@@ -1,4 +1,4 @@
-# História do Povo Israelita
+# A religião do Povo Israelita
 
 ## Sumário
 
