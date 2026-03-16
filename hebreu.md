@@ -21,13 +21,14 @@ No fim da Idade dos Metais - na chamada Idade do Ferro - um conjunto de tríbos 
 Por volta de 2300 a.C, a região da Mesopotâmia é então invadida por tribos de um povo denominado **Acádios**, que submete os Sumérios, absorvendo sua cultura e fazendo surgir o primeiro império da história, isto é, o primeiro estado unificado com objetivo de dominar terras alheias. 
 
 
-### Babilônios
-Dentre as várias cidades do Império Acádio, uma delas se destaca: a **Babilônia**.  O predomínio desta cidade sobre as demais faz surgir o chamado **Império Babilônico** em cerca de 1.800 a.C.  Neste império, surge o primeiro código de leis escritas conhecidas na humanidade - denominado **Código de Hamurabi** em homenagem ao imperador Hamurabi sob cujo governo tais leis foram promulgadas.  Elas são lembradas pela máxima: *"Olho por olho e dente por dente"*.
-
 ### Hebreus
-A tradição oral do povo hebreu recorda fatos supostamente ocorridos em torno de 1450 a.C, mas aparentemente só registrados no [Livro de Gênesis](https://www.bibliacatolica.com.br/biblia-matos-soares-1956/genesis/) entre os anos de 1000 a.C e 500 a.C. um homem chamado Abraão vivia na cidade de Ur (regisão próxima ao sul da Mesopotâmia e atualmente no Iraque, perto da cidade de Nassíria) entre 1800 a.C e 1450 a.C quando teria recebido chamado divino para migrar a Terra de Canaâ, região onde hoje se encontra o sul da Síria, o Líbano, Israel, Faixa de Gaza, Cisjordânia e Jordânia. 
+A tradição oral do povo hebreu recorda fatos supostamente ocorridos entre 2200 a.C e 1200 a.C, mas aparentemente só registrados no [Livro de Gênesis](https://www.bibliacatolica.com.br/biblia-matos-soares-1956/genesis/) entre os anos de 1000 a.C e 500 a.C.
 
-O filho de Abraão - chamado Isaac- é pai de Jacó, cujo nome é mudado para Israel em um episódio narrado em [Genesis 32: 22-32](https://www.bibliacatolica.com.br/biblia-matos-soares-1956/genesis/32/) .  Jacó significa "enganador", mas, após lutar com Deus e sair vitorioso, este é abençoado e tem seu nome mudado para Israel (que significa "aquele que luta com Deus"), para indicar que ele entrou na luta espiritual e saiu vitorioso com a bênção de Deus.
+Em torno de 2166 a.C a 1991 a.C, um homem chamado Abraão vivia na cidade de Ur (regisão próxima ao sul da Mesopotâmia e atualmente no Iraque, perto da cidade de Nassíria) quando teria recebido chamado divino para migrar a Terra de Canaâ, região onde hoje se encontra o sul da Síria, o Líbano, Israel, Faixa de Gaza, Cisjordânia e Jordânia. 
+
+O filho de Abraão - chamado Isaac - vive entre 2066 a.C e 1886 a.C na Terra de Canaâ.  Vivendo entre 2006 a.C e 1859 a.C, seu filho, Jacó, tem seu nome mudado para Israel em um episódio narrado em [Genesis 32: 22-32](https://www.bibliacatolica.com.br/biblia-matos-soares-1956/genesis/32/) .  Jacó significa "enganador", mas, após lutar com Deus e sair vitorioso, este é abençoado e tem seu nome mudado para Israel (que significa "aquele que luta com Deus" ou "príncipe de Deus"), para indicar que ele entrou na luta espiritual e saiu vitorioso com a bênção de Deus, vindo a se tornar Seu príncipe.
+
+### Os Israelitas
 
 Israel tem vários filhos e é pai das 12 tribos que constituem o povo israelita, quais sejam:
 
@@ -44,8 +45,16 @@ Israel tem vários filhos e é pai das 12 tribos que constituem o povo israelita
 - José (suas terras são dadas a seus filhos Efraim e Manassés)
 - Benjamim
 
-Cada um destes filhos de Israel recebe uma parte da Terra de Canaã para formar sua tribo.  Levi, porém, não recebe terras para se tornar a tribo dos sacerdotes e José não recebe terras que são destinadas a seus filhos Efraim e Manassés.
+Cada um destes filhos de Israel recebe uma parte da Terra de Canaã para formar sua tribo.  Levi, porém, não recebe terras para se tornar a tribo dos sacerdotes e José não recebe terras que são destinadas a seus filhos Efraim e Manassés, porque, vivendo entre 1915 a.C e 1806 a.C, foi vendido pelos seus irmãos como escravo ao Egito.
+
+José prospera no Egito e chega a se tornar governador recebe os israelitas que, devido a uma grande fome, migram para o Egito e, embora prosperem de início, são posteriormente escravizados.  Em torno de 1526 a.C e 1406 a.C, um homem chamado Moisés lidera o povo de Israel para um fuga do Egito de volta à Terra de Canaã tal como narrada em [Êxodo](https://biblia.paulus.com.br/biblia-pastoral/antigo-testamento/pentateuco/exodo). 
+
+### Babilônios
+Dentre as várias cidades do Império Acádio, uma delas se destaca: a **Babilônia**.  O predomínio desta cidade sobre as demais faz surgir o chamado **Império Babilônico** em cerca de 1.800 a.C.  Neste império, surge o primeiro código de leis escritas conhecidas na humanidade - denominado **Código de Hamurabi** em homenagem ao imperador Hamurabi sob cujo governo tais leis foram promulgadas.  Elas são lembradas pela máxima: *"Olho por olho e dente por dente"*.
+
 
 ### Assírios
 Um outro povo - chamado de **Assírios** - invade então a Mesopotâmia e a domina de 1300 a.C até 600 a.C.  Os assírios eram ferozes guerreiros e foram os primeiros a usar armas de ferro em larga escala e carros de combate.  Além disso, seu imperador - rei Assurbanipal - criou a primeira biblioteca de grande porte na cidade de Nínive, conhecida como **Biblioteca de Nìnive**.
+
+Os assírios fundam o Segundo Império Babilônico
 
