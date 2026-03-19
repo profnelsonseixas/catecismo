@@ -26,7 +26,8 @@ SANTA SÉ. Catecismo da Igreja Católica, 5a. Ed. Brasília: Edições CNBB, 202
 9. [Atos dos Apóstolos](https://biblia.paulus.com.br/biblia-pastoral/novo-testamento/atos-dos-apostolos)
 10. [Formação do Novo Testamento](novotestamento.md)
 11. [A Tradição, o Magistério e a bíblia cristã](biblia.md)
-12. [A Igreja hoje](sacramentos.md)
+12. [Sacramentos](sacramentos.md)
+13. [Práticas da Igreja](praticas.md)
 
 
 
