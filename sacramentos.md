@@ -83,7 +83,6 @@ Para a validade do sacramento, são necessários:
 O ministro originário da Crisma é o Bispo. Isso simboliza o vínculo do crismado com a sucessão apostólica e com a unidade da Igreja local (Diocese). Em casos específicos (como na Vigília Pascal ou perigo de morte), o Bispo pode delegar essa faculdade a um sacerdote.
 5. O Papel do Padrinho/Madrinha
 Diferente do Batismo, onde os pais respondem pela criança, na Crisma o padrinho tem a função de ser um guia espiritual e uma testemunha de que o crismando está pronto para assumir as responsabilidades da vida cristã adulta.
-------------------------------
 
 
 
