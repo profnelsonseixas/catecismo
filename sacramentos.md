@@ -64,6 +64,57 @@ Embora o batismo ritual seja a via ordinária, a teologia católica reconhece ex
 
 O ápice da vida cristã, onde se recebe o Corpo e o Sangue de Cristo sob as espécies do pão e do vinho. Alimenta a alma e une o fiel diretamente a Cristo. 
 
+
+A Eucaristia é considerada pela Igreja Católica como o "fonte e ápice de toda a vida cristã". Ela não é apenas um símbolo, mas a presença real de Jesus Cristo, que se entrega como alimento espiritual para os fiéis. [1, 2, 3, 4] 
+Aqui estão os pontos centrais da teologia eucarística católica:
+1. A Presença Real e a Transubstanciação [5] 
+Diferente de muitas denominações protestantes, a Igreja Católica ensina que, após a consagração, o pão e o vinho deixam de ser pão e vinho em sua essência. [5] 
+
+* Transubstanciação: É o termo teológico para a mudança de toda a substância do pão na substância do Corpo de Cristo, e de toda a substância do vinho na substância do Seu Sangue.
+* Permanência: Enquanto as espécies (aparências) de pão e vinho permanecem, Cristo está verdadeiramente, realmente e substancialmente presente. [5, 6, 7, 8] 
+
+2. O Sacrifício Eucarístico
+A Eucaristia não é uma "repetição" da morte de Jesus, mas um memorial que torna presente o único sacrifício de Cristo na cruz. [9, 10] 
+
+* Atualização: Cada Missa torna atual e presente o sacrifício redentor do Calvário para a humanidade de hoje.
+* Unidade de Vítima e Sacerdote: No altar, é o próprio Cristo quem se oferece através do ministério do sacerdote. [9, 11, 12, 13] 
+
+3. Banquete Pascal e Comunhão
+Além de sacrifício, a Eucaristia é o banquete da comunhão. [14] 
+
+* Alimento Espiritual: Assim como o corpo precisa de comida, a alma precisa da Eucaristia para crescer na vida da graça recebida no Batismo.
+* Unidade do Corpo Místico: Ao comungar do mesmo pão, os fiéis tornam-se um só corpo em Cristo, fortalecendo a unidade da Igreja. [1, 15, 16] 
+
+4. Requisitos para a Recepção
+Para receber a Sagrada Comunhão, o fiel deve seguir certas normas estabelecidas pelo [Catecismo da Igreja Católica](https://www.vatican.va/archive/cathechism_po/index_new/p2s2cap1_1210-1419_po.html): [17] 
+
+* Estado de Graça: Estar livre de pecados graves (mortais); se houver consciência de pecado grave, deve-se confessar antes de comungar.
+* Jejum Eucarístico: Abster-se de comida e bebida (exceto água e remédios) ao menos uma hora antes da comunhão.
+* Fé no Mistério: Acreditar na presença real de Cristo sob as espécies consagradas. [18, 19] 
+
+
+[1] [https://bibliotecacatolica.com.br](https://bibliotecacatolica.com.br/blog/formacao/sete-sacramentos-da-igreja-catolica/#:~:text=Eucaristia:%20alimento%20da%20alma%20A%20Eucaristia%20%C3%A9,na%20caridade%20e%20na%20uni%C3%A3o%20com%20Ele.)
+[2] [https://www.vaticannews.va](https://www.vaticannews.va/pt/igreja/news/2023-06/corpus-christi-eucaristia-fonte-apice-vida-crista.html#:~:text=A%20eucaristia%20%C3%A9%20a%20presen%C3%A7a%20do%20Senhor,%C3%A9%20a%20grande%20manifesta%C3%A7%C3%A3o%20p%C3%BAblica%20da%20eucaristia.)
+[3] [https://palavradefe.com](https://palavradefe.com/eucaristia/)
+[4] [https://arquidiocesebh.org.br](https://arquidiocesebh.org.br/noticias/artigo-sacramento-da-eucaristia-fonte-de-toda-a-vida-crista-neuza-silveira-secretariado-arquidiocesano-biblico-catequetico-de-bh/#:~:text=A%20Eucaristia%20era%20a%20ora%C3%A7%C3%A3o%20de%20a%C3%A7%C3%A3o,o%20centro%20de%20toda%20a%20vida%20crist%C3%A3.)
+[5] [https://pt.wikipedia.org](https://pt.wikipedia.org/wiki/Transubstancia%C3%A7%C3%A3o#:~:text=Transubstancia%C3%A7%C3%A3o%20%C3%A9%20a%20mudan%C3%A7a%20da%20subst%C3%A2ncia%20do,na%20Presen%C3%A7a%20Real%20de%20Cristo%20na%20Eucaristia.)
+[6] [https://bibliotecacatolica.com.br](https://bibliotecacatolica.com.br/blog/formacao/sacramento-da-eucaristia/)
+[7] [https://liriocatolico.com.br](https://liriocatolico.com.br/enciclopedia/palavra/transubstanciacao/)
+[8] [https://www.cnbb.org.br](https://www.cnbb.org.br/jesus-esta-realmente-presente-na-eucaristia/#:~:text=Na%20Eucaristia%2C%20%C3%A9%20o%20pr%C3%B3prio%20Cristo%20que,do%20Vinho%2C%20em%20seu%20Corpo%20e%20Sangue.)
+[9] [https://arquidiocesebh.org.br](https://arquidiocesebh.org.br/noticias/artigo-sacramento-da-eucaristia-fonte-de-toda-a-vida-crista-neuza-silveira-secretariado-arquidiocesano-biblico-catequetico-de-bh/#:~:text=O%20Sacramento%20da%20Eucaristia%20%C3%A9%20o%20sinal,Pai%20na%20cruz%2C%20em%20favor%20da%20humanidade.)
+[10] [https://arquidiocesesalvador.org.br](https://arquidiocesesalvador.org.br/sacramento-da-eucaristia/#:~:text=A%20Eucaristia%20%C3%A9%2C%20pois%2C%20um%20sacrif%C3%ADcio%2C%20porque,memorial%20e%20porque%20aplica%20o%20seu%20fruto:)
+[11] [https://www.patriarcado-lisboa.pt](https://www.patriarcado-lisboa.pt/site/index.php?cont_=40&id=114&tem=134)
+[12] [https://diocesefranca.org.br](https://diocesefranca.org.br/compartilhar.php?id_conteudo=2334#:~:text=A%20Eucaristia%20%C3%A9%20doa%C3%A7%C3%A3o%20e%20entrega%2C%20%C3%A9,o%20mesmo%20sacerdote%20e%20a%20mesma%20v%C3%ADtima.)
+[13] [https://www.clerus.org](https://www.clerus.org/clerus/dati/2009-11/12-13/galot_pt.html)
+[14] [https://agencia.ecclesia.pt](https://agencia.ecclesia.pt/portal/quinta-feira-santa-altar-e-mesa-de-sacrificio-intimidade-palavra-e-alimento/#:~:text=Sacramento%20da%20Eucaristia%20une%20dimens%C3%A3o%20sacrificial%20ao,venerar%20uma%20mesa%20que%20ocupa%20o%20lugar)
+[15] [https://www.youtube.com](https://www.youtube.com/watch?v=imbez1CjsbE)
+[16] [https://catedrallondrina.com.br](https://catedrallondrina.com.br/formacao/a-sagrada-comunhao/#:~:text=De%20acordo%20com%20o%20Catecismo%20da%20Igreja,coisa%20em%20Cristo%20pelo%20la%C3%A7o%20da%20caridade.)
+[17] [https://www.vatican.va](https://www.vatican.va/archive/cathechism_po/index_new/p2s2cap1_1210-1419_po.html)
+[18] [https://catecismo.net](https://catecismo.net/indice-geral/parte=2/secao=2/capitulo=1/artigo=3/paragrafo=0/topico=0/titulo=0/numero=0)
+[19] [https://loja.cleofas.com.br](https://loja.cleofas.com.br/os-frutos-da-eucaristia#:~:text=Como%20a%20Sagrada%20Eucaristia%20nos%20p%C3%B5e%20em,santidade%2C%20fervor%20apost%C3%B3lico%2C%20a%C3%A7%C3%A3o%20de%20gra%C3%A7as%20etc.)
+
+
+
 ## 2. Sacramentos de Cura
 Destinados a restaurar a saúde da alma e, às vezes, do corpo. 
 
