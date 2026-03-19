@@ -3,6 +3,9 @@
 
 ## Isaías
 
+## Daniel
+
+[Daniel 7:13-14](https://biblia.paulus.com.br/biblia-pastoral/antigo-testamento/livros-profeticos/daniel/7/13)
 
 ## João Batista
 
