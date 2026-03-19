@@ -9,7 +9,6 @@
 5. [Os livros sapienciais e Jesus](#os-livros-sapienciais-e-jesus)
 6. [Levítico](#levitico)
 
-## Introdução
 
 
 ## A Bíblia Judaica e seus diversos manuscritos
