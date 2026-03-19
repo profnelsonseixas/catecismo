@@ -6,7 +6,7 @@ Estes lançam os alicerces da vida cristã.
 
 * Batismo: Considerado o "nascimento espiritual" e a porta de entrada para os demais sacramentos. Nele, a pessoa é libertada do pecado original e torna-se filha de Deus e membro da Igreja.
 * Confirmação (Crisma): É o fortalecimento da graça batismal pelo selo do Espírito Santo. Confere ao cristão a maturidade espiritual para testemunhar sua fé no mundo.
-* Eucaristia: O ápice da vida cristã, onde se recebe o Corpo e o Sangue de Cristo sob as espécies do pão e do vinho. Alimenta a alma e une o fiel diretamente a Cristo. [
+* Eucaristia: O ápice da vida cristã, onde se recebe o Corpo e o Sangue de Cristo sob as espécies do pão e do vinho. Alimenta a alma e une o fiel diretamente a Cristo. 
 
 2. Sacramentos de Cura
 Destinados a restaurar a saúde da alma e, às vezes, do corpo. 
