@@ -1,4 +1,4 @@
-# A Igreja hoje
+# Sacramentos
 
 Os sacramentos são "sinais sensíveis e eficazes da graça", instituídos por Jesus Cristo para santificar os fiéis e edificar a Igreja. A Igreja Católica reconhece sete sacramentos, que costumam ser divididos em três grandes categorias: 
 
