@@ -6,9 +6,8 @@
 2. [Moisés no Êxodo](#moisés-no-êxodo)
 3. [A Lei na Terra Prometida e o Deuteronômio](#a-lei-na-terra-prometida-e-o-deuterônomio)
 4. [Levítico](#levítico)
-5. [Salmos de Davi](#salmos-de-davi)
-6. [Os livros sapienciais e Jesus](#os-livros-sapienciais-e-jesus)
-7. [Os profetas](#os-profetas)
+5. [Os livros sapienciais e Jesus](#os-livros-sapienciais-e-jesus)
+6. [Os profetas](#os-profetas)
 
 
 
