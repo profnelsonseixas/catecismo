@@ -8,7 +8,7 @@ Estes lançam os alicerces da vida cristã.
 ### Batismo
 Considerado o "nascimento espiritual" e a porta de entrada para os demais sacramentos. Nele, a pessoa é libertada do pecado original e torna-se filha de Deus e membro da Igreja.
 
-Na teologia da Igreja Católica, o Batismo é o fundamento de toda a vida cristã e o "porta de entrada" para os demais sacramentos. Ele é compreendido como um novo nascimento pelo Espírito Santo, que configura o fiel a Cristo e o incorpora à Igreja. [1, 2, 3, 4, 5] 
+Na teologia da Igreja Católica, o Batismo é o fundamento de toda a vida cristã e o "porta de entrada" para os demais sacramentos. Ele é compreendido como um novo nascimento pelo Espírito Santo, que configura o fiel a Cristo e o incorpora à Igreja. [1], [2], [3], [4], [5] 
 Aqui estão os pilares teológicos desse sacramento:
 1. Efeitos Espirituais e Teológicos
 
