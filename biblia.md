@@ -1,6 +1,6 @@
 # A bíblia católica
 
-O texto do Antigo Testamento católico - a Septuaginta - está escrito em Grego Koiné e igualmente o Novo Testamento., que é a assim como 
+O texto do Antigo Testamento católico - a Septuaginta - está escrito em Grego Koiné e igualmente o Novo Testamento. 
 
 <details>
 <summary> Clique aqui para saber o que é Grego Koiné </summary>
@@ -8,7 +8,9 @@ O texto do Antigo Testamento católico - a Septuaginta - está escrito em Grego 
 </p>
 </details>
 
-Mas a língua oficial do Império Romano e também da Igreja em Roma era era o Latim.  Por isso, o Papa Damásio I pede a São Jerónimo que elabore a primeira versão oficial da bíblia católica em latim - chamada Vulgata Latina.  Para isso, São Jerónimo, além de usar a Septuaginta como Antigo Testamento, empregou textos originais em hebraico, aramaico e grego.
+Como dito anteriormente, o Antigo Testamento da Septuaginta sempre foi usado pelos cristãos e, inclusive, a retirada de 7 de seus livros pelos sábios judeus no Concílio de Jamnia é atribuída, em parte, para eliminar qualquer livros que não teria sido escrito originalmente em hebraico, já que os cristãos usavam prioritariamente o grego koiné como língua escrita.
+
+Assim, em grego koiné, foram sendo escritos os livros que formariam o Novo Testamento.  Aqueles mais usados nas diversas comunidades cristãs espalhadas no entorno do Mar Mediterrâneo do Egito (Alexandria), passando por Israel (Jerusalém), Síria, Líbano, Irã, Iraque, Turquia, Grécia e Itália (Roma).  Mas a língua oficial do Império Romano e também da Igreja em Roma era era o Latim.  Por isso, o Papa Damásio I pede a São Jerónimo que elabore a primeira versão oficial da bíblia católica em latim - chamada Vulgata Latina.  Para isso, São Jerónimo, além de usar a Septuaginta como Antigo Testamento, empregou textos originais em hebraico, aramaico e grego.
 
 A mais tradicional tradução para o português da Vulgata Latina foi realizada pelo Padre Matos Soares.  É esta edição que usamos aqui para representar a Bíblia Católica, embora por vezes usemos citações de textos de outras traduções e, ao longo dos encontros, também utilizemos outras traduções católicas.
 
