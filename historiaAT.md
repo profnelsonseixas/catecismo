@@ -110,15 +110,17 @@ Os Salmos de Davi formam a base da oração da Igreja e compõem a chamada Litur
 
 Os Salmos foram a base da oração dos primeiros padres, que os rezavam todos diariamente.  De fato, a tradição de se rezar o Terço vem da sua facilidade de ensinar aos fiéis que, em sua maioria, eram analfabetos.  Por isso, o Terço é composto originalmente por 150 Ave Maria.
 
-### [Jó](https://www.bibliaonline.com.br/acf/j%C3%B3)
+Outros livros sapienciais, isto é, os livros que ensinam a Sabedoria Divina para que os fiéis conduzam a vida são:
 
-### [Provérbios](https://www.bibliaonline.com.br/acf/pv)
+- [Jó](https://www.bibliaonline.com.br/acf/j%C3%B3)
 
-### [Eclesiastes](https://www.bibliaonline.com.br/acf/ec)
+- [Provérbios](https://www.bibliaonline.com.br/acf/pv)
 
-### [Sabedoria](https://www.bibliacatolica.com.br/biblia-ave-maria/sabedoria/1/)
+- [Eclesiastes](https://www.bibliaonline.com.br/acf/ec)
 
-### [Eclesiástico](https://biblia.paulus.com.br/biblia-pastoral/antigo-testamento/livros-sapienciais/eclesiastico)
+- [Sabedoria](https://www.bibliacatolica.com.br/biblia-ave-maria/sabedoria/1/)
+
+- [Eclesiástico](https://biblia.paulus.com.br/biblia-pastoral/antigo-testamento/livros-sapienciais/eclesiastico)
 
 ## Os profetas
 
