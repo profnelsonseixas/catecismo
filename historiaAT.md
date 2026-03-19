@@ -118,6 +118,8 @@ Os Salmos foram a base da oração dos primeiros padres, que os rezavam todos di
 - [Provérbios](https://www.bibliaonline.com.br/acf/pv)
 
 - [Eclesiastes](https://www.bibliaonline.com.br/acf/ec)
+  
+- [Cântico dos Cânticos](https://biblia.paulus.com.br/biblia-pastoral/antigo-testamento/livros-sapienciais/cantico-dos-canticos)
 
 - [Sabedoria](https://www.bibliacatolica.com.br/biblia-ave-maria/sabedoria/1/)
 
