@@ -8,6 +8,7 @@
 4. [Levítico](#levítico)
 5. [Salmos de Davi](#salmos-de-davi)
 6. [Os livros sapienciais e Jesus](#os-livros-sapienciais-e-jesus)
+7. [Os profetas](#-os-profetas)
 
 
 
@@ -110,7 +111,12 @@ Suas pilares principais:
 
 ### [Eclesiástico](https://biblia.paulus.com.br/biblia-pastoral/antigo-testamento/livros-sapienciais/eclesiastico)
 
+## Os profetas
 
+Os profetas estão listados [aqui](https://biblia.paulus.com.br/biblia-pastoral/antigo-testamento/livros-profeticos).  São de particular importância para a formação e entendimento do cristianismo os profetas a seguir:
+- Isaías](https://biblia.paulus.com.br/biblia-pastoral/antigo-testamento/livros-profeticos/isaias)
+- [Oséias](https://biblia.paulus.com.br/biblia-pastoral/antigo-testamento/livros-profeticos/oseias), e
+- [Daniel](https://biblia.paulus.com.br/biblia-pastoral/antigo-testamento/livros-profeticos/daniel)
 
 [Anterior](roteiro.md)     [Início](index.md)       [Próximo](novotestamento.md)
 
