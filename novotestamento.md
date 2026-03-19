@@ -1,4 +1,4 @@
-# Formação do Novo Testamento
+# Formação do Novo Testamento: da Tradição à Bíblia pelo Magistério da Igreja
 
 A história da formação do Novo Testamento é a história do início das primeiras comuniddes de Seguidores do Caminho ensinado por Jesus Cristo.  Na verdade, Jesus não deixou escritos, sendo todo o seu ensinamento proferido por meio palestras dadas abertamente em diversos lugares a todos os que quisessem ouvir, ou seja, o ensinamento de Jesus é o início da **Tradição Oral da Igreja**.
 
