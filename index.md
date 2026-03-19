@@ -24,7 +24,7 @@ SANTA SÉ. Catecismo da Igreja Católica, 5a. Ed. Brasília: Edições CNBB, 202
 7. [Ensinamentos de Jesus](ensinamentos.md)
 8. [Mistério Pascal](missa.md)
 9. [Formação do Novo Testamento](novotestamento.md)
-10. [O que é a bíblia cristã](biblia.md)
+10. [A Tradição, o Magistério e a bíblia cristã](biblia.md)
 
 
 
