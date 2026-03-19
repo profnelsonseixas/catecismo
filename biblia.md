@@ -14,7 +14,9 @@ A mais tradicional tradução para o português da Vulgata Latina foi realizada 
 
 [Bíblia Católica - Padre Matos Soares](https://padrepauloricardo.org/biblia/gn?cap=1&edition=matos-soares)
 
+Atente-se também para a tradução pastoral da Editora Paulus, que é muito instrutiva e fácil de ler.
 
+[Bíblia Pastoral Paulus](https://biblia.paulus.com.br/)
 
 
 [Anterior](novotestamento.md)     [Início](index.md)       [Próximo](ensinamentos.md)
