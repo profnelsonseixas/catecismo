@@ -8,7 +8,7 @@
 4. [Levítico](#levítico)
 5. [Salmos de Davi](#salmos-de-davi)
 6. [Os livros sapienciais e Jesus](#os-livros-sapienciais-e-jesus)
-7. [Os profetas](#-os-profetas)
+7. [Os profetas](#os-profetas)
 
 
 
@@ -62,7 +62,7 @@ Os reformadores protestantes, porém, optaram por se insurgir também contra o e
 
 [Os Dez Mandamentos](https://www.bibliaonline.com.br/acf/ex/20)
 
-## Moisés chega à Terra Prometida - a lei em Deuteronômio
+## Chegada à Terra Prometida - a lei em Deuteronômio
 
 ### [Os Dez Mandamentos revisitados](https://www.bibliaonline.com.br/acf/dt/5)
 
