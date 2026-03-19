@@ -102,7 +102,7 @@ Suas pilares principais:
 
 Os Salmos de Davi formam a base da oração da Igreja e compõem a chamada Liturgia da Horas onde os fiéis - em especial, os bispos e padres - oram em determinadas horas do dia.  São particularmente interessantes:
 
-- [Salmo 1(https://biblia.paulus.com.br/biblia-pastoral/antigo-testamento/livros-sapienciais/salmos/1) - Convite à Sabedoria
+- [Salmo 1](https://biblia.paulus.com.br/biblia-pastoral/antigo-testamento/livros-sapienciais/salmos/1) - Convite à Sabedoria
 - [Salmo 23](https://biblia.paulus.com.br/biblia-pastoral/antigo-testamento/livros-sapienciais/salmos/23) - Confiança em Deus
 - [Salmo 51](https://biblia.paulus.com.br/biblia-pastoral/antigo-testamento/livros-sapienciais/salmos/51) - Perdão a Deus
 - [Salmo 91](https://biblia.paulus.com.br/biblia-pastoral/antigo-testamento/livros-sapienciais/salmos/91) - Louvor e confiança pela proteção divina
