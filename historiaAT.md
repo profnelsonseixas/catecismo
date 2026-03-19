@@ -7,6 +7,7 @@
 3. [Moisés chega à Terra Prometida - a lei em Deuteronômio](#moisés-chega-à-terra-prometida-a-lei-em-deuterônomio)
 4. [Salmos de Davi](#salmos-de-davi)
 5. [Os livros sapienciais e Jesus](#os-livros-sapienciais-e-jesus)
+6. [Levítico](#levitico)
 
 ## A Bíblia Judaica e seus diversos manuscritos
 
@@ -65,6 +66,35 @@ Os reformadores protestantes, porém, optaram por se insurgir também contra o e
 ### [A Shemá](https://www.bibliaonline.com.br/acf/dt/6/4-9)
 
 Esta é a oração mais fundamental de todo o Antigo Testamento e resume todos os mandamentos. É importante notar que ela trata do amor a Deus a que Jesus se refere explicitado pela palavra hebraica **AHAVA**.  Esta palavra descreve um amor intenso, ativo, dedicado, compromissado e fiel; uma verdadeira Aliança.  Ou seja, a vontade de amar a Deus deve ter estas características.
+
+## Levítico
+
+O Levítico  originalmente em hebraico chamado de , - é o livro da Bíblia que resume as práticas da religião israelita. Seu nome original em hebraico é Vayikrá, que significa "E Ele chamou", representando o chamado de Deus à Santidade e, por extensão, à vida em comunidade.
+
+### Perspectiva dos Rabinos e da Torá
+- Rashi (Comentarista Clássico): Destaca que o livro começa com um "chamado" de afeto de Deus a Moisés. Para Rashi, as leis de pureza e sacrifícios não são apenas técnicas, mas formas de proteger a presença divina (Shekhinah) no meio do povo.
+- Maimônides (Rambam): Em sua obra Guia dos Perplexos, ele explica que os sacrifícios (Korbanot, da raiz "aproximar") serviam para afastar Israel da idolatria pagã, canalizando o desejo de adoração para o Deus único.
+- Nahmânides (Ramban): Diferente de Maimônides, via nos sacrifícios um valor místico intrínseco, onde o ofertante deveria sentir que sua própria vida estava sendo simbolicamente oferecida a Deus para expiação. 
+
+
+. É , essencialmente, um "manual de santidade" para o povo de Israel. Ele detalha como um povo imperfeito pode conviver com a presença de um Deus santo.  
+Suas pilares principais:
+
+   1. O Sistema de Sacrifícios (Caps. 1-7): Estabelece cinco tipos de ofertas (holocausto, cereais, paz, pecado e culpa). O objetivo era fornecer um meio para o arrependimento, a gratidão e a restauração da comunhão com Deus.
+   2. O Sacerdócio (Caps. 8-10): Descreve a consagração de Arão e seus filhos como mediadores. Enfatiza que aqueles que servem a Deus devem seguir Suas instruções com precisão (ilustrado pela morte de Nadabe e Abiú).
+   3. Pureza e Impureza (Caps. 11-15): Define o que é "limpo" e "imundo", cobrindo leis alimentares, higiene e doenças. O foco aqui não é apenas saúde, mas a separação simbólica do que é sagrado do que é comum.
+   4. O Dia da Expiação / Yom Kippur (Cap. 16): O centro do livro. O ritual anual onde o Sumo Sacerdote entrava no Lugar Santíssimo para purificar o santuário e o povo de todos os seus pecados.
+   5. O Código de Santidade (Caps. 17-27): Instruções práticas sobre ética, sexualidade, justiça social e as festas religiosas (Páscoa, Pentecostes, Tabernáculos, etc.). A frase chave é: "Sede santos, porque eu, o Senhor vosso Deus, sou santo".  
+
+Em resumo: Levítico ensina que o acesso a Deus exige pureza, sacrifício e uma vida ética que reflita o caráter divino.
+Você quer entender melhor o significado de algum dos sacrifícios específicos ou das festas judaicas mencionadas no livro?
+
+
+
+
+
+
+
 ## Salmos de Davi
 
 ## Os livros sapienciais e Jesus
