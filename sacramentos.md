@@ -122,6 +122,45 @@ Destinados a restaurar a saúde da alma e, às vezes, do corpo.
 
 Proporciona o perdão dos pecados cometidos após o batismo. Através da confissão a um sacerdote, o fiel se reconcilia com Deus e com a comunidade.
 
+A teologia do Sacramento da Reconciliação (também chamado de Confissão ou Penitência) baseia-se na misericórdia infinita de Deus e na autoridade dada por Jesus aos seus Apóstolos para perdoar pecados em Seu nome (João 20, 22-23).
+Aqui estão os fundamentos teológicos centrais:
+1. A Natureza do Sacramento
+
+* Segundo Batismo: É chamado de "Batismo laborioso", pois recupera a graça santificante perdida pelo pecado grave cometido após o Batismo.
+* Encontro Pessoal: Não é um julgamento jurídico frio, mas um encontro entre o pecador arrependido e a misericórdia de Deus, mediada pela figura do sacerdote, que age in persona Christi (na pessoa de Cristo).
+
+2. Os Atos do Penitente (Matéria)
+Para que o sacramento seja válido, a teologia católica exige três atos do fiel:
+
+* Contrição: O arrependimento sincero e a dor da alma por ter ofendido a Deus, com o firme propósito de não pecar mais.
+* Confissão: A acusação verbal de todos os pecados graves (mortais) conhecidos após um exame de consciência diligente.
+* Satisfação (Penitência): O cumprimento de um ato (oração, jejum ou esmola) proposto pelo confessor para reparar o dano causado pelo pecado e ajudar na cura espiritual.
+
+3. O Ato do Ministro (Forma)
+
+* Absolvição: O momento em que o sacerdote, usando o poder das chaves, profere as palavras: "Eu te absolvo de teus pecados, em nome do Pai, e do Filho e do Espírito Santo".
+* Sigilo Sacramental: O "segredo de confissão" é absoluto e inviolável. O padre nunca, sob nenhuma circunstância (nem mesmo sob ameaça de morte ou por ordem judicial), pode revelar o que ouviu no confessionário.
+
+4. Efeitos Teológicos
+
+* Reconciliação com Deus: Devolve ao fiel a amizade com o Criador e a vida eterna (se estava em pecado mortal).
+* Reconciliação com a Igreja: O pecado não fere apenas a Deus, mas também o corpo da Igreja. O sacramento restaura essa comunhão fraterna.
+* Paz de Consciência: Proporciona um alívio espiritual e força interior para resistir às tentações futuras.
+
+5. Pecado Mortal vs. Pecado Venial
+
+* Pecado Mortal: Destrói a caridade no coração. A confissão é obrigatória antes de comungar a Eucaristia.
+* Pecado Venial: Ofende a caridade, mas não a exclui. Embora a confissão não seja estritamente obrigatória para pecados leves, a Igreja a recomenda fortemente para o progresso na vida espiritual. [1, 2, 3] 
+
+
+
+[1] [https://www.instagram.com](https://www.instagram.com/p/DGVn-lytK3I/#:~:text=A%20Igreja%20estabelece%20claramente%20que%20quem%20est%C3%A1,receber%20a%20Eucaristia%2C%20salvo%20em%20situa%C3%A7%C3%B5es%20excepcionais.)
+[2] [https://diocesedeamparo.org.br](https://diocesedeamparo.org.br/ainda-os-elementos-da-boa-confissao/)
+[3] [https://paroquiacandal.org.pt](https://paroquiacandal.org.pt/paroquia/penitencia-reconciliacao/#:~:text=A%20confiss%C3%A3o%20dos%20pecados%20veniais%20%C3%A9%20muito,Cristo%20e%20progredirmos%20na%20vida%20do%20Esp%C3%ADrito.)
+
+
+
+
 ### Unção dos Enfermos
 
 Oferece consolo, paz e coragem aos fiéis que enfrentam doenças graves ou a velhice. Visa a cura espiritual e, se for da vontade de Deus, a cura física. 
