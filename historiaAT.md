@@ -62,7 +62,7 @@ Os reformadores protestantes, porém, optaram por se insurgir também contra o e
 
 [Os Dez Mandamentos](https://www.bibliaonline.com.br/acf/ex/20)
 
-## Chegada à Terra Prometida - a lei em Deuteronômio
+## A Lei na Terra Prometida e o Deuteronômio
 
 ### [Os Dez Mandamentos revisitados](https://www.bibliaonline.com.br/acf/dt/5)
 
