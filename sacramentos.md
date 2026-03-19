@@ -23,7 +23,7 @@ A Igreja ensina, baseada nas palavras de Jesus (João 3,5), que o Batismo é nec
 Para ser válido segundo a doutrina católica, o sacramento exige:
 
 * Matéria: O uso de água verdadeira, seja por imersão (mergulho) ou efusão (derramamento sobre a cabeça).
-* Forma (Fórmula Trinitária): As palavras obrigatoriamente devem ser: "Eu te batizo em nome do Pai, e do Filho, e do Espírito Santo". O [Vaticano](https://www.vatican.va/roman_curia/congregations/cfaith/documents/rc_cdf_doc_20200624_responsum-nota-battesimo_po.html) reforça que modificações nesta fórmula (como dizer "nós te batizamos") tornam o batismo inválido. [6, 11, 12] 
+* Forma (Fórmula Trinitária): As palavras obrigatoriamente devem ser: "Eu te batizo em nome do Pai, e do Filho, e do Espírito Santo". O [Vaticano](https://www.vatican.va/roman_curia/congregations/cfaith/documents/rc_cdf_doc_20200624_responsum-nota-battesimo_po.html) reforça que modificações nesta fórmula (como dizer "nós te batizamos") tornam o batismo inválido. [5], [10], [11] 
 
 4. Batismo de Desejo e de Sangue
 Embora o batismo ritual seja a via ordinária, a teologia católica reconhece exceções para aqueles que morrem sem o rito das águas:
