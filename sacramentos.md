@@ -8,6 +8,45 @@ Estes lançam os alicerces da vida cristã.
 ### Batismo
 Considerado o "nascimento espiritual" e a porta de entrada para os demais sacramentos. Nele, a pessoa é libertada do pecado original e torna-se filha de Deus e membro da Igreja.
 
+Na teologia da Igreja Católica, o Batismo é o fundamento de toda a vida cristã e o "porta de entrada" para os demais sacramentos. Ele é compreendido como um novo nascimento pelo Espírito Santo, que configura o fiel a Cristo e o incorpora à Igreja. [1, 2, 3, 4, 5] 
+Aqui estão os pilares teológicos desse sacramento:
+1. Efeitos Espirituais e Teológicos
+
+* Purificação dos Pecados: O Batismo lava o pecado original (estado de separação de Deus herdado da humanidade) e todos os pecados pessoais cometidos antes do rito.
+* Filiação Divina: O batizado torna-se "filho no Filho", participando da vida da Santíssima Trindade e da natureza divina.
+* Caráter Indelével: Imprime na alma um selo espiritual eterno (caráter), o que significa que o sacramento nunca pode ser repetido, pois a identidade de filho de Deus permanece para sempre.
+* Incorporação à Igreja: O fiel torna-se membro do Corpo de Cristo, compartilhando da missão sacerdotal, profética e régia de Jesus. [1, 6, 7, 8, 9] 
+
+2. Necessidade para a Salvação
+A Igreja ensina, baseada nas palavras de Jesus (João 3,5), que o Batismo é necessário para a salvação daqueles a quem o Evangelho foi anunciado. Por essa razão, a Igreja pratica o batismo de crianças, para que recebam a graça de Deus desde o início da vida. [6, 7, 8, 10] 
+3. Matéria e Forma (O Rito)
+Para ser válido segundo a doutrina católica, o sacramento exige:
+
+* Matéria: O uso de água verdadeira, seja por imersão (mergulho) ou efusão (derramamento sobre a cabeça).
+* Forma (Fórmula Trinitária): As palavras obrigatoriamente devem ser: "Eu te batizo em nome do Pai, e do Filho, e do Espírito Santo". O [Vaticano](https://www.vatican.va/roman_curia/congregations/cfaith/documents/rc_cdf_doc_20200624_responsum-nota-battesimo_po.html) reforça que modificações nesta fórmula (como dizer "nós te batizamos") tornam o batismo inválido. [6, 11, 12] 
+
+4. Batismo de Desejo e de Sangue
+Embora o batismo ritual seja a via ordinária, a teologia católica reconhece exceções para aqueles que morrem sem o rito das águas:
+
+* Batismo de Sangue: Aqueles que sofrem o martírio por causa da fé cristã.
+* Batismo de Desejo: Aqueles que, sob a impulsão da graça, buscam sinceramente a Deus e ignoram sem culpa o Evangelho, mas teriam desejado o batismo se conhecessem sua necessidade.
+
+
+
+[1] [https://marianos.pt](https://marianos.pt/2013/09/19/teologia-do-sacramento-do-batismo-sacramento-da-regeneracao-pela-agua-e-pala-palavra/#:~:text=O%20Batismo%20faz%2Dnos%20filhos%20no%20Filho.%20Pelo,no%20Filho%2C%20exclamemos%20no%20Esp%C3%ADrito:%20Abba%2C%20Pai%E2%80%9D%5B33%5D.)
+[2] [https://formacao.cancaonova.com](https://formacao.cancaonova.com/igreja/doutrina/o-santo-batismo-e-o-fundamento-de-toda-vida-crista/#:~:text=O%20santo%20batismo%20%C3%A9%20o%20fundamento%20de%20toda%20a%20vida%20crist%C3%A3)
+[3] [https://www.ofielcatolico.com.br](https://www.ofielcatolico.com.br/2001/03/o-sacramento-do-batismo.html#:~:text=O%20Sacramento%20do%20Batismo%20O%20Fiel%20Cat%C3%B3lico%20%7C%20FLSP.)
+[4] [https://pt.scribd.com](https://pt.scribd.com/document/693623811/o-Batismo-No-CIC#:~:text=A%20GRA%C3%87A%20DO%20BATISMO.&text=nascimento%20no%20Esp%C3%ADrito%20Santo.)
+[5] [https://dombosco.net](https://dombosco.net/paroquia-sto-antonio-blog/o-que-significa-cada-sacramento-para-o-catolico/#:~:text=O%20primeiro%20sacramento%20que%20recebemos%20%C3%A9%20o,porta%20de%20entrada%20para%20os%20demais%20sacramentos.)
+[6] [https://www.cnbb.org.br](https://www.cnbb.org.br/por-que-batizar-as-criancas/#:~:text=O%20Batismo%20crist%C3%A3o%20tem%20sua%20origem%20no,ao%20batizado%20uma%20nova%20condi%C3%A7%C3%A3o%20de%20exist%C3%AAncia.)
+[7] [https://www.youtube.com](https://www.youtube.com/watch?v=m4lYb5LqJMo)
+[8] [https://bibliotecacatolica.com.br](https://bibliotecacatolica.com.br/blog/formacao/sacramento-do-batismo/)
+[9] [https://formacao.cancaonova.com](https://formacao.cancaonova.com/igreja/catequese/batismo-fonte-de-todas-as-vocacoes/#:~:text=Batismo%2C%20fonte%20de%20todas%20as%20voca%C3%A7%C3%B5es.)
+[10] [https://www.vidapastoral.com.br](https://www.vidapastoral.com.br/artigos/sacramentos/o-batismo-numa-perspectiva-pastoral/#:~:text=Da%20parte%20de%20Deus%2C%20o%20batismo%20%C3%A9,quem%20n%C3%A3o%20crer%20ser%C3%A1%20condenado%E2%80%9D%20%28Mc%2016%2C15%2D16%29.)
+[11] [https://pt.wikipedia.org](https://pt.wikipedia.org/wiki/Batismo#:~:text=Table_title:%20Resumo%20comparativo%20Table_content:%20header:%20%7C%20Denomina%C3%A7%C3%A3o,Geralmente%20por%20submers%C3%A3o%20%7C%20Padr%C3%A3o:%20Trindade%20%7C)
+[12] [https://www.vatican.va](https://www.vatican.va/roman_curia/congregations/cfaith/documents/rc_cdf_doc_20200624_responsum-nota-battesimo_po.html#:~:text=Recentemente%2C%20houve%20celebra%C3%A7%C3%B5es%20do%20Sacramento%20do%20Batismo,e%20do%20Filho%20e%20do%20Esp%C3%ADrito%20Santo%E2%80%9D.)
+
+
 ### Confirmação (Crisma)
 É o fortalecimento da graça batismal pelo selo do Espírito Santo. Confere ao cristão a maturidade espiritual para testemunhar sua fé no mundo.
 
