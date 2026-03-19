@@ -97,6 +97,7 @@ Suas pilares principais:
 
 ## Os livros sapienciais e Jesus
 
+Os livros sapienciais são aqueles que ensinam a Sabedoria Divina para que os fiéis conduzam a vida.  Eles refletem o ensinamento de Jesus, que é a Sabedoria encarnada.  Eles são os seguintes:
 
 ### [Salmos de Davi](https://biblia.paulus.com.br/biblia-pastoral/antigo-testamento/livros-sapienciais/salmos/)
 
@@ -110,7 +111,7 @@ Os Salmos de Davi formam a base da oração da Igreja e compõem a chamada Litur
 
 Os Salmos foram a base da oração dos primeiros padres, que os rezavam todos diariamente.  De fato, a tradição de se rezar o Terço vem da sua facilidade de ensinar aos fiéis que, em sua maioria, eram analfabetos.  Por isso, o Terço é composto originalmente por 150 Ave Maria.
 
-Outros livros sapienciais, isto é, os livros que ensinam a Sabedoria Divina para que os fiéis conduzam a vida são:
+### Outros livros sapienciais
 
 - [Jó](https://www.bibliaonline.com.br/acf/j%C3%B3)
 
