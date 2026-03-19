@@ -23,8 +23,9 @@ SANTA SÉ. Catecismo da Igreja Católica, 5a. Ed. Brasília: Edições CNBB, 202
 6. [A escolha dos apóstolos](apostolos.md)
 7. [Ensinamentos de Jesus](ensinamentos.md)
 8. [Mistério Pascal](missa.md)
-9. [Formação do Novo Testamento](novotestamento.md)
-10. [A Tradição, o Magistério e a bíblia cristã](biblia.md)
+9. [Atos dos Apóstolos](https://biblia.paulus.com.br/biblia-pastoral/novo-testamento/atos-dos-apostolos)
+10. [Formação do Novo Testamento](novotestamento.md)
+11. [A Tradição, o Magistério e a bíblia cristã](biblia.md)
 
 
 
