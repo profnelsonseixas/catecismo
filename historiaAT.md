@@ -4,7 +4,7 @@
 
 1. [A Bíblia Judaica e seus diversos manuscritos](#a-biblia-judaica-e-seus-diversos-manuscritos)
 2. [Moisés no Êxodo](#moisés-no-êxodo)
-3. [Moisés chega à Terra Prometida - a lei em Deuteronômio](#moisés-chega-à-terra-prometida-a-lei-em-deuterônomio)
+3. [Chegada à Terra Prometida - a lei em Deuteronômio](#chegada-à-terra-prometida-a-lei-em-deuterônomio)
 4. [Levítico](#levítico)
 5. [Salmos de Davi](#salmos-de-davi)
 6. [Os livros sapienciais e Jesus](#os-livros-sapienciais-e-jesus)
@@ -114,7 +114,7 @@ Suas pilares principais:
 ## Os profetas
 
 Os profetas estão listados [aqui](https://biblia.paulus.com.br/biblia-pastoral/antigo-testamento/livros-profeticos).  São de particular importância para a formação e entendimento do cristianismo os profetas a seguir:
-- Isaías](https://biblia.paulus.com.br/biblia-pastoral/antigo-testamento/livros-profeticos/isaias)
+- [Isaías](https://biblia.paulus.com.br/biblia-pastoral/antigo-testamento/livros-profeticos/isaias)
 - [Oséias](https://biblia.paulus.com.br/biblia-pastoral/antigo-testamento/livros-profeticos/oseias), e
 - [Daniel](https://biblia.paulus.com.br/biblia-pastoral/antigo-testamento/livros-profeticos/daniel)
 
