@@ -4,7 +4,7 @@
 
 1. [A Bíblia Judaica e seus diversos manuscritos](#a-biblia-judaica-e-seus-diversos-manuscritos)
 2. [Moisés no Êxodo](#moisés-no-êxodo)
-3. [A Lei na Terra Prometida e o Deuteronômio](#a-lei-na-terra-prometida-e-o-deuterônomio)
+3. [A Lei](#a-lei)
 4. [Levítico](#levítico)
 5. [Os livros sapienciais e Jesus](#os-livros-sapienciais-e-jesus)
 6. [Os profetas](#os-profetas)
@@ -61,7 +61,9 @@ Os reformadores protestantes, porém, optaram por se insurgir também contra o e
 
 [Os Dez Mandamentos](https://www.bibliaonline.com.br/acf/ex/20)
 
-## A Lei na Terra Prometida e o Deuteronômio
+## A Lei
+
+Na chegada à Terra Prometida, no antigo território de Canaâ, que, hoje em dia, é Israel, Moisés comete um pecado e Deus o proíbe de entrar na Terra Prometida, decretando sua morte.  Antes disso, porém, Moisés passa pela segunda vez ao povo a lei já ensinada quando do Exodo.  A escrição desta lei está no livro do Deuteronômio.
 
 ### [Os Dez Mandamentos revisitados](https://www.bibliaonline.com.br/acf/dt/5)
 
