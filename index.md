@@ -19,13 +19,12 @@ SANTA SÉ. Catecismo da Igreja Católica, 5a. Ed. Brasília: Edições CNBB, 202
 2. [HIstória do Povo Hebreu](hebreu.md)
 3. [A religião do Povo de Israel](historiaAT.md)
 4. [Antecedentes](antecedentes.md)
-5. [O Batismo de Jesus](batismoJesus.md)
-6. [As tentações no deserto e quaresma](tentacaoDeserto.md)
-7. [A escolha dos apóstolos](apostolos.md)
-8. [Ensinamentos de Jesus](ensinamentos.md)
-9. [Mistério Pascal](missa.md)
-10. [Formação do Novo Testamento](novotestamento.md)
-11. [O que é a bíblia cristã](biblia.md)
+5. [O Batismo de Jesus, as tentações e a Quaresma](batismoJesus.md)
+6. [A escolha dos apóstolos](apostolos.md)
+7. [Ensinamentos de Jesus](ensinamentos.md)
+8. [Mistério Pascal](missa.md)
+9. [Formação do Novo Testamento](novotestamento.md)
+10. [O que é a bíblia cristã](biblia.md)
 
 
 
