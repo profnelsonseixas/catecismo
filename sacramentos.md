@@ -60,6 +60,36 @@ Embora o batismo ritual seja a via ordinária, a teologia católica reconhece ex
 ### Confirmação (Crisma)
 É o fortalecimento da graça batismal pelo selo do Espírito Santo. Confere ao cristão a maturidade espiritual para testemunhar sua fé no mundo.
 
+A teologia do Sacramento da Confirmação (ou Crisma) é compreendida pela Igreja Católica como o sacramento que aperfeiçoa a graça batismal. Se o Batismo é o nascimento para a vida espiritual, a Crisma é o sacramento da maturidade cristã e do fortalecimento para a missão.
+Aqui estão os pilares teológicos desse sacramento:
+1. A Efusão do Espírito Santo
+A Crisma é a celebração do "Pentecostes pessoal". Assim como os Apóstolos receberam o Espírito Santo para pregar com coragem, o crismando recebe uma efusão especial do Espírito para testemunhar a fé.
+
+* Os Sete Dons: A teologia ensina que o sacramento enraíza mais profundamente os dons do Espírito Santo: Sabedoria, Entendimento, Conselho, Fortaleza, Ciência, Piedade e Temor de Deus.
+
+2. Efeitos Teológicos e Vínculo Eclesial
+
+* União com Cristo e a Igreja: O batizado é vinculado de modo mais perfeito à Igreja e mais estritamente obrigado a difundir e defender a fé por palavras e obras.
+* Caráter Indelével: Assim como o Batismo, a Crisma imprime na alma um selo espiritual espiritual que nunca se apaga. Por isso, só se recebe a Crisma uma vez na vida.
+* Soldado de Cristo: Antigamente, usava-se o termo "soldado de Cristo" para expressar que o fiel agora tem a força necessária para enfrentar as batalhas espirituais e professar o nome de Jesus publicamente.
+
+3. Matéria e Forma (O Rito)
+Para a validade do sacramento, são necessários:
+
+* Matéria: A unção na fronte com o Santo Crisma (óleo de oliveira misturado com bálsamo, consagrado pelo Bispo na Missa dos Santos Óleos). Ocorre também a imposição das mãos, gesto que remonta aos Apóstolos.
+* Forma (As Palavras): O ministro (geralmente o Bispo) diz: "Recebe, por este sinal, o Espírito Santo, o Dom de Deus".
+
+4. O Ministro do Sacramento
+O ministro originário da Crisma é o Bispo. Isso simboliza o vínculo do crismado com a sucessão apostólica e com a unidade da Igreja local (Diocese). Em casos específicos (como na Vigília Pascal ou perigo de morte), o Bispo pode delegar essa faculdade a um sacerdote.
+5. O Papel do Padrinho/Madrinha
+Diferente do Batismo, onde os pais respondem pela criança, na Crisma o padrinho tem a função de ser um guia espiritual e uma testemunha de que o crismando está pronto para assumir as responsabilidades da vida cristã adulta.
+------------------------------
+
+
+
+
+
+
 ### Eucaristia
 
 O ápice da vida cristã, onde se recebe o Corpo e o Sangue de Cristo sob as espécies do pão e do vinho. Alimenta a alma e une o fiel diretamente a Cristo. 
