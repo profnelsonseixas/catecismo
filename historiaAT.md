@@ -96,7 +96,7 @@ Suas pilares principais:
 ## Os livros sapienciais e Jesus
 
 
-### Salmos de Davi
+### [Salmos de Davi](https://biblia.paulus.com.br/biblia-pastoral/antigo-testamento/livros-sapienciais/salmos/)
 
 Os Salmos de Davi formam a base da oração da Igreja e compõem a chamada Liturgia da Horas onde os fiéis - em especial, os bispos e padres - oram em determinadas horas do dia.  São particularmente interessantes:
 
