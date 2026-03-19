@@ -1,4 +1,4 @@
-# O Batismo de Jesus e as Tentações no Deserto
+# O Batismo de Jesus, as Tentações no Deserto e a Quaresma
 
 Na tradição do povo judeu, o [batismo](https://bibliotecacatolica.com.br/blog/formacao/sacramento-do-batismo/?utm_source=googleads&utm_medium=paid-traffic&utm_campaign=branding&utm_content=638921191139&utm_term=145765466764&gad_source=1&gad_campaignid=19119288439&gbraid=0AAAAADDeeUFJ9BCMhsb6EDDt-_d21K6LR&gclid=Cj0KCQiAtfXMBhDzARIsAJ0jp3AtCzRlre62gcAAVvYWIDVMbYD-c0_8CHR_zVd989tP9ZgoncL3z7caAoAKEALw_wcB), em português, vem da palavra hebraica usada para designar banho de purificação ritual.
 
