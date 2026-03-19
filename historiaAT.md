@@ -9,6 +9,9 @@
 5. [Os livros sapienciais e Jesus](#os-livros-sapienciais-e-jesus)
 6. [Levítico](#levitico)
 
+## Introdução
+
+
 ## A Bíblia Judaica e seus diversos manuscritos
 
 A palavra bíblia significava originalmente conjunto de livros ou biblioteca. Até o século II d.C, a bíblia era o conjunto de textos que contavam a história do povo de Israel, não havendo uma lista precisa e definitiva de textos (que é o que se chama de cânon) que seriam ou não parte da bíblia judaica.  Originalmente, os textos eram todos escritos em hebraico ou aramaico (que é uma lingua próxima do hebraico como o espanhol o é do português.  Porém, com a diáspora do povo de Israel, por volta do período de Alexandre da Macedonia, faz-se uma tradução destes textos para o grego koiné (a lingua mais falada no mundo na época).  Esta tradução foi denominada Septuaginta por supostamente ter sido produzida por 72 mestres israelitas dos textos da bíblia.
@@ -86,7 +89,7 @@ Suas pilares principais:
    4. O Dia da Expiação / Yom Kippur (Cap. 16): O centro do livro. O ritual anual onde o Sumo Sacerdote entrava no Lugar Santíssimo para purificar o santuário e o povo de todos os seus pecados.
    5. O Código de Santidade (Caps. 17-27): Instruções práticas sobre ética, sexualidade, justiça social e as festas religiosas (Páscoa, Pentecostes, Tabernáculos, etc.). A frase chave é: "Sede santos, porque eu, o Senhor vosso Deus, sou santo".  
 
-Em resumo: Levítico ensina que o acesso a Deus exige pureza, sacrifício e uma vida ética que reflita o caráter divino.
+**Em resumo**: Levítico ensina que o acesso a Deus exige **pureza**, **sacrifício** e **uma vida ética que reflita o caráter divino**.
 
 
 
