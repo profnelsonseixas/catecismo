@@ -5,9 +5,9 @@
 1. [A Bíblia Judaica e seus diversos manuscritos](#a-biblia-judaica-e-seus-diversos-manuscritos)
 2. [Moisés no Êxodo](#moisés-no-êxodo)
 3. [Moisés chega à Terra Prometida - a lei em Deuteronômio](#moisés-chega-à-terra-prometida-a-lei-em-deuterônomio)
-4. [Salmos de Davi](#salmos-de-davi)
-5. [Os livros sapienciais e Jesus](#os-livros-sapienciais-e-jesus)
-6. [Levítico](#levitico)
+4. [Levítico](#levítico)
+5. [Salmos de Davi](#salmos-de-davi)
+6. [Os livros sapienciais e Jesus](#os-livros-sapienciais-e-jesus)
 
 
 
