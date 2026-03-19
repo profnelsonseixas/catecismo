@@ -87,7 +87,6 @@ Suas pilares principais:
    5. O Código de Santidade (Caps. 17-27): Instruções práticas sobre ética, sexualidade, justiça social e as festas religiosas (Páscoa, Pentecostes, Tabernáculos, etc.). A frase chave é: "Sede santos, porque eu, o Senhor vosso Deus, sou santo".  
 
 Em resumo: Levítico ensina que o acesso a Deus exige pureza, sacrifício e uma vida ética que reflita o caráter divino.
-Você quer entender melhor o significado de algum dos sacrifícios específicos ou das festas judaicas mencionadas no livro?
 
 
 
