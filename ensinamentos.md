@@ -1,12 +1,12 @@
 # Ensinamentos de Jesus
 
-O núcleo central dos ensinamentos de Jesus pode ser resumido no Sermão da Montanha (Mt 5-7), incluindo o PaI Nosso, abaixo:
+O Sermão da Montanha (Mateus 5 a 7) é considerado o núcleo centtal dos ensinamentos de Jesus sobre o Reino de Deus. Nele, Jesus apresenta uma ética que vai além da letra da lei, focando na intenção do coração. Aí é ensinada a oração do Pai Nosso.  Veja os links abaixo:
 1. [Mt. 5](https://padrepauloricardo.org/biblia/mt?cap=5&edition=matos-soares).
 2. [Mt 6](https://www.bibliaonline.com.br/acf/mt/6)
 3. [Mt 7](https://www.bibliaonline.com.br/acf/mt/7)
 
 
-O Sermão da Montanha (Mateus 5 a 7) é considerado o "manifesto" do Reino de Deus. Nele, Jesus apresenta uma ética que vai além da letra da lei, focando na intenção do coração. [1] 
+ 
 Aqui estão os principais tópicos:
 1. As Bem-aventuranças (5:1-12) [2] 
 Jesus inicia o sermão listando o perfil daqueles que são "felizes" ou "abençoados" no Reino (os humildes, os que choram, os mansos, os que buscam justiça, os misericordiosos, os limpos de coração, os pacificadores e os perseguidos). [3, 4] 
