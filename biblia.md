@@ -1,6 +1,10 @@
-# A bíblia católica
+# A Tradição, o Magistério e a Bíblia
 
-O texto do Antigo Testamento católico - a Septuaginta - está escrito em Grego Koiné e igualmente o Novo Testamento. 
+A Tradição é o conjunto de ensinamentos orais passado por Jesus Cristo aos Apóstolos e destes aos primeiros bispos e teólogos (chamados Pais da Igreja) e às gerações seguintes de bispos.  Desenvolve-se sob a iluminação do Espírito Santo e se consubstancia em documentos de concílios, ensinamentos de bispos e do Papa ao longo do tempos.
+
+Estes bispos e Papas que produzem a Tradição formam o Magistério da Igreja e transformam algumas das crenças da Tradição em dogmas, sendo o cânon da Bíblia aquele que nos interessa em particular neste momento.
+
+Assim, o texto do Antigo Testamento católico - a Septuaginta - originalmente escrito em Grego Koiné assim como o 27 livros que compõem o Novo Testamento foram canonizados no Concílio de Roma em 382 d.C. Estas são as três fontes dos ensinamentos da Igreja: A Tradição, o Magistério e a Bíblia.
 
 <details>
 <summary> Clique aqui para saber o que é Grego Koiné </summary>
