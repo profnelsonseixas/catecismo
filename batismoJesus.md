@@ -32,6 +32,7 @@ Curiosidade: Note que tanto em Mateus quanto em Lucas, Jesus responde a todas as
 
 É fascinante notar que Jesus não usou Seus próprios argumentos, mas sim a Palavra Escrita para vencer o tentador. Todas as três respostas foram tiradas de passagens de Deuteronômio, que relembram a experiência de Israel no deserto.
 Aqui estão as correspondências:
+
 1ª Tentação: Transformar pedras em pães
 
 * A resposta de Jesus: "Nem só de pão viverá o homem, mas de toda a palavra que sai da boca de Deus." (Mateus 4:4 / Lucas 4:4)
