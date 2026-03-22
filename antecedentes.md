@@ -35,6 +35,39 @@ O capítulo 53 é a descrição mais vívida do sacrifício de Jesus, escrito ce
 
 ## João Batista
 
+A história de João Batista é narrada nos quatro Evangelhos (Mateus, Marcos, Lucas e João), que o apresentam como o precursor de Jesus.  
+Abaixo estão os principais versículos e capítulos divididos por temas e evangelhos:
+1. Nascimento e Infância
+
+* Lucas 1:5-25: O anúncio do nascimento de João ao seu pai, Zacarias.
+* Lucas 1:57-80: O nascimento, a escolha do nome e o cântico profético de Zacarias.  
+
+2. Ministério e Pregação no Deserto
+
+* Mateus 3:1-12: Apresenta João pregando no deserto da Judeia e batizando no Rio Jordão.
+* Marcos 1:1-8: Início do Evangelho com a pregação de João, a "voz que clama no deserto".
+* Lucas 3:1-18: Contexto histórico de seu ministério e suas exortações ao arrependimento.
+* João 1:6-8, 15-28: João como testemunha da luz e sua afirmação de que não era o Cristo.  
+
+
+3. Prisão e Morte
+
+* Mateus 14:1-12: O relato da prisão e decapitação de João por ordem de Herodes.
+* Marcos 6:14-29: Detalhes sobre o banquete de Herodes e o pedido pela cabeça de João.
+* Lucas 3:19-20: Breve menção ao motivo de sua prisão por confrontar Herodes.  
+
+4. Diálogos e Elogios de Jesus
+
+* Mateus 11:2-19: João envia discípulos a Jesus da prisão; Jesus o elogia como o maior entre os nascidos de mulher.
+* Lucas 7:18-35: Relato similar ao de Mateus sobre os mensageiros de João e a resposta de Jesus.
+* João 3:22-30: A última declaração de humildade de João: "Importa que ele cresça e que eu diminua".  
+
+
+
+
+
+
+
 
 ## Maria e José: a anunciação
 
