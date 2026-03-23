@@ -3,21 +3,21 @@
 - [Oração de Jesus]() - Pedido de Misericórdia e Purificação
 - [Vinde Espírito Santo]() - Pedido de Iluminação
 - [Pai Nosso]() - Pedido de União
+- [Adoração ao Santíssimo](https://www.youtube.com/watch?v=dUo-nnMh2sc)
 - [Abstinência de Carne todas as Sextas-feiras](https://www.youtube.com/shorts/wUpQfO8qBug) ou [aqui](https://www.youtube.com/watch?v=8emls4X6DKk)
 - Sinal da Cruz
-- [A imitação de Cristo](https://r2.padrepauloricardo.org/1twlq6r7l8mntlhcfpvvl4m98hbs) ou [aqui](https://www.totustuusmariae.com.br/?cat=19&id=152)
-- [Dias de Preceito](https://bibliotecacatolica.com.br/blog/formacao/dias-de-preceito-na-igreja-catolica/)
+- - [Dias de Preceito](https://bibliotecacatolica.com.br/blog/formacao/dias-de-preceito-na-igreja-catolica/)
 - [Genuflexão e Vênia](https://formacao.cancaonova.com/igreja/catequese/voce-sabe-o-que-significa-genuflexao-e-inclinacao/)
 - [Terço](https://www.youtube.com/watch?v=MNBSPCePZQA)
 - [Rosário](https://blogcancaonova.com/tododemaria/a-origem-do-rosario-de-nossa-senhora/) ou [aqui](https://www.youtube.com/watch?v=JFSheD4LuSw)
-- [Adoração ao Santíssimo](https://www.youtube.com/watch?v=dUo-nnMh2sc)
+- [Exame de consciência para Confissão](https://bibliotecacatolica.com.br/blog/destaque/exame-de-consciencia/)
+- [Cinco Passos para uma boa confissão](https://www.youtube.com/watch?v=5lEsedsxNCk)
+- [Guia de Confissão](https://bibliotecacatolica.com.br/blog/formacao/fazer-confissao-quaresma/)
 - Quaresma (Jejum, oração e caridade)
 - [Quarta-feira de Cinzas](https://www.instagram.com/p/DU2qLwrj-AJ/?igsh=bW4za2JncXZnZnNi)
 - Páscoa
 - Natal
 - Advento
 - Calendário litúrgico
-- [Cinco Passos para uma boa confissão](https://www.youtube.com/watch?v=5lEsedsxNCk)
-- [Guia de Confissão](https://bibliotecacatolica.com.br/blog/formacao/fazer-confissao-quaresma/)
-- [Exame de consciência para Confissão](https://bibliotecacatolica.com.br/blog/destaque/exame-de-consciencia/)
 - [Oração de Santo Agostinho](https://www.youtube.com/watch?v=0gY4v6MIIq8)
+- [A imitação de Cristo](https://r2.padrepauloricardo.org/1twlq6r7l8mntlhcfpvvl4m98hbs) ou [aqui](https://www.totustuusmariae.com.br/?cat=19&id=152)
