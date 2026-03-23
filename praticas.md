@@ -1,5 +1,6 @@
 # Pratícas de Igreja hoje
 
+- [Abstinência de Carne todas as Sextas-feiras](https://www.youtube.com/shorts/wUpQfO8qBug) ou [aqui](https://www.youtube.com/watch?v=8emls4X6DKk)
 - Sinal da Cruz
 - [Dias de Preceito](https://bibliotecacatolica.com.br/blog/formacao/dias-de-preceito-na-igreja-catolica/)
 - Genuflexão
