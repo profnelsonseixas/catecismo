@@ -1,6 +1,8 @@
 # Pratícas de Igreja hoje
 
-- [Oração de Invocação ao Nome de Jesus](https://www.youtube.com/watch?v=g1YNsqaR20E) - Pedido de Misericórdia e Purificação
+- [Oração de Invocação ao Nome de Jesus](https://www.youtube.com/watch?v=g1YNsqaR20E)
+
+  [Pedido de Misericórdia e Purificação](https://www.youtube.com/watch?v=dWAwWeYmSdY)
   
  "Senhor Jesus Cristo, Filho de Deus, tende misericórdia de mim, pecador" - [Kyrie eleison](https://www.youtube.com/watch?v=v5RIZge7B7s)
 - [Vinde Espírito Santo]() - Pedido de Iluminação
