@@ -13,6 +13,7 @@
 - [Sinal da Cruz Triplo Antes do Evangelho na Missa](https://www.youtube.com/watch?v=kS8aomuv5Xo)
 - [Dias de Preceito](https://bibliotecacatolica.com.br/blog/formacao/dias-de-preceito-na-igreja-catolica/)
 - [Genuflexão e Vênia](https://formacao.cancaonova.com/igreja/catequese/voce-sabe-o-que-significa-genuflexao-e-inclinacao/)
+  Veja a genuflexão realizada corretamente [aqui](https://www.youtube.com/shorts/5lS8PLuKTb4)
 - [Terço](https://www.youtube.com/watch?v=MNBSPCePZQA)
 - [Rosário](https://blogcancaonova.com/tododemaria/a-origem-do-rosario-de-nossa-senhora/) ou [aqui](https://www.youtube.com/watch?v=JFSheD4LuSw)
 - [Exame de consciência para Confissão](https://bibliotecacatolica.com.br/blog/destaque/exame-de-consciencia/)
