@@ -9,7 +9,7 @@
 - [Pai Nosso]() - Pedido de União
 - [Adoração ao Santíssimo](https://www.youtube.com/watch?v=dUo-nnMh2sc)
 - [Abstinência de Carne todas as Sextas-feiras](https://www.youtube.com/shorts/wUpQfO8qBug) ou [aqui](https://www.youtube.com/watch?v=8emls4X6DKk)
-- Sinal da Cruz
+- [Sinal da Cruz Triplo Antes do Evangelho na Missa](https://www.youtube.com/watch?v=kS8aomuv5Xo)
 - [Dias de Preceito](https://bibliotecacatolica.com.br/blog/formacao/dias-de-preceito-na-igreja-catolica/)
 - [Genuflexão e Vênia](https://formacao.cancaonova.com/igreja/catequese/voce-sabe-o-que-significa-genuflexao-e-inclinacao/)
 - [Terço](https://www.youtube.com/watch?v=MNBSPCePZQA)
