@@ -10,7 +10,7 @@
 - [Genuflexão e Vênia](https://formacao.cancaonova.com/igreja/catequese/voce-sabe-o-que-significa-genuflexao-e-inclinacao/)
 - [Terço](https://www.youtube.com/watch?v=MNBSPCePZQA)
 - [Rosário](https://blogcancaonova.com/tododemaria/a-origem-do-rosario-de-nossa-senhora/) ou [aqui](https://www.youtube.com/watch?v=JFSheD4LuSw)
-- [Adoração ao Santíssimo](https://www.youtube.com/watch?v=kc8HyIoMydg) ou [aqui](https://www.youtube.com/watch?v=kc8HyIoMydg)
+- [Adoração ao Santíssimo](https://www.youtube.com/watch?v=dUo-nnMh2sc) ou [aqui](https://www.youtube.com/watch?v=kc8HyIoMydg)
 - Quaresma (Jejum, oração e caridade)
 - [Quarta-feira de Cinzas](https://www.instagram.com/p/DU2qLwrj-AJ/?igsh=bW4za2JncXZnZnNi)
 - Páscoa
