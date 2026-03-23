@@ -2,7 +2,7 @@
 
 - [Oração de Invocação ao Nome de Jesus](https://www.youtube.com/watch?v=g1YNsqaR20E) - Pedido de Misericórdia e Purificação
   
- "Senhor Jesus Cristo, Filho de Deus, tende misericórdia de mim, pecador" - Kyrie eleison
+ "Senhor Jesus Cristo, Filho de Deus, tende misericórdia de mim, pecador" - [Kyrie eleison](https://www.youtube.com/watch?v=v5RIZge7B7s)
 - [Vinde Espírito Santo]() - Pedido de Iluminação
 - [Pai Nosso]() - Pedido de União
 - [Adoração ao Santíssimo](https://www.youtube.com/watch?v=dUo-nnMh2sc)
