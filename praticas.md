@@ -22,7 +22,7 @@
 - Páscoa
 - Natal
 - Advento
-- Calendário litúrgico
+- [Calendário litúrgico](https://bibliotecacatolica.com.br/blog/formacao/calendario-liturgico-2026/)
 - [Oração de Santo Agostinho](https://www.youtube.com/watch?v=0gY4v6MIIq8)
 - [A imitação de Cristo](https://r2.padrepauloricardo.org/1twlq6r7l8mntlhcfpvvl4m98hbs) ou [aqui](https://www.totustuusmariae.com.br/?cat=19&id=152)
 - [A Imitação de Cristo Explicada por Frei Gilson](https://www.youtube.com/watch?v=6d4I43LBU_Y&list=PLCtM_OCiqzylW3nsO1kNspcCHHNJl-3Jw)
