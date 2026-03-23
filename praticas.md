@@ -21,3 +21,4 @@
 - Calendário litúrgico
 - [Oração de Santo Agostinho](https://www.youtube.com/watch?v=0gY4v6MIIq8)
 - [A imitação de Cristo](https://r2.padrepauloricardo.org/1twlq6r7l8mntlhcfpvvl4m98hbs) ou [aqui](https://www.totustuusmariae.com.br/?cat=19&id=152)
+- [A Santificação](https://www.youtube.com/watch?v=IiuN5psFAKM)
