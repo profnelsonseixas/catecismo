@@ -1,6 +1,6 @@
 # Pratícas de Igreja hoje
 
-- [Oração de Jesus]() - Pedido de Misericórdia e Purificação
+- [Oração de Jesus](https://www.youtube.com/watch?v=g1YNsqaR20E) - Pedido de Misericórdia e Purificação
 - [Vinde Espírito Santo]() - Pedido de Iluminação
 - [Pai Nosso]() - Pedido de União
 - [Adoração ao Santíssimo](https://www.youtube.com/watch?v=dUo-nnMh2sc)
