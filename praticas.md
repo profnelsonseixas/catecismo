@@ -5,7 +5,7 @@
 - [Dias de Preceito](https://bibliotecacatolica.com.br/blog/formacao/dias-de-preceito-na-igreja-catolica/)
 - [Genuflexão e Vênia](https://formacao.cancaonova.com/igreja/catequese/voce-sabe-o-que-significa-genuflexao-e-inclinacao/)
 - [Terço](https://www.youtube.com/watch?v=MNBSPCePZQA)
-- Rosário [aqui](https://blog.cancaonova.com/tododemaria/a-origem-do-rosario-de-nossa-senhora/) ou [aqui](https://www.youtube.com/watch?v=JFSheD4LuSw)
+- [Rosário](https://blog.cancaonova.com/tododemaria/a-origem-do-rosario-de-nossa-senhora/) ou [aqui](https://www.youtube.com/watch?v=JFSheD4LuSw)
 - Adoração ao Santíssimo
 - Quaresma (Jejum, oração e caridade)
 - [Quarta-feira de Cinzas](https://www.instagram.com/p/DU2qLwrj-AJ/?igsh=bW4za2JncXZnZnNi)
