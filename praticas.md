@@ -1,12 +1,16 @@
 # Pratícas de Igreja hoje
 
+- [Oração de Jesus]() - Pedido de Misericórdia e Purificação
+- [Vinde Espírito Santo]() - Pedido de Iluminação
+- [Pai Nosso]() - Pedido de União
 - [Abstinência de Carne todas as Sextas-feiras](https://www.youtube.com/shorts/wUpQfO8qBug) ou [aqui](https://www.youtube.com/watch?v=8emls4X6DKk)
 - Sinal da Cruz
+- [A imitação de Cristo](https://r2.padrepauloricardo.org/1twlq6r7l8mntlhcfpvvl4m98hbs) ou [aqui](https://www.totustuusmariae.com.br/?cat=19&id=152)
 - [Dias de Preceito](https://bibliotecacatolica.com.br/blog/formacao/dias-de-preceito-na-igreja-catolica/)
 - [Genuflexão e Vênia](https://formacao.cancaonova.com/igreja/catequese/voce-sabe-o-que-significa-genuflexao-e-inclinacao/)
 - [Terço](https://www.youtube.com/watch?v=MNBSPCePZQA)
-- [Rosário](https://blog.cancaonova.com/tododemaria/a-origem-do-rosario-de-nossa-senhora/) ou [aqui](https://www.youtube.com/watch?v=JFSheD4LuSw)
-- Adoração ao Santíssimo
+- [Rosário](https://blogcancaonova.com/tododemaria/a-origem-do-rosario-de-nossa-senhora/) ou [aqui](https://www.youtube.com/watch?v=JFSheD4LuSw)
+- [Adoração ao Santíssimo](https://www.youtube.com/watch?v=kc8HyIoMydg) ou [aqui](https://www.youtube.com/watch?v=kc8HyIoMydg)
 - Quaresma (Jejum, oração e caridade)
 - [Quarta-feira de Cinzas](https://www.instagram.com/p/DU2qLwrj-AJ/?igsh=bW4za2JncXZnZnNi)
 - Páscoa
