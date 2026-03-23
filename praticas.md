@@ -13,7 +13,7 @@
   
 - [Abstinência de Carne todas as Sextas-feiras](https://www.youtube.com/shorts/wUpQfO8qBug) ou [aqui](https://www.youtube.com/watch?v=8emls4X6DKk)
   
-- [Sinal da Cruz](https://www.youtube.com/watch?v=10i7lRi7eIM)
+- [Sinal da Cruz](https://www.youtube.com/watch?v=10i7lRi7eIM) e sua história [aqui](https://www.youtube.com/watch?v=hEaWTS8ridg)
   
 - [Sinal da Cruz Triplo Antes do Evangelho na Missa](https://www.youtube.com/watch?v=kS8aomuv5Xo)
   
