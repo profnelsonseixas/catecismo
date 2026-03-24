@@ -57,4 +57,4 @@ Um detalhe curioso: Na segunda tentação, o próprio Diabo também cita a Bíbl
 
 
 
-[Anterior](roteiro.md)     [Início](index.md)       [Próximo](novotestamento.md)
+[Anterior](antecedentes.md)     [Início](index.md)       [Próximo](apostolos.md)
