@@ -1,6 +1,8 @@
 # Paróquia São Pedro Apóstolo
 
-*"Misericórdia quero e não sacrifícios e o **conhecimento de Deus** mais do que holocaustos"* ([Oseias 6: 6](https://www.bibliaonline.com.br/acf/os/6) e [Mateus 9:13](https://padrepauloricardo.org/biblia/mt?cap=9&edition=matos-soares))
+*"Misericórdia quero e não sacrifícios e o **conhecimento de Deus** mais do que holocaustos"*
+
+([Oseias 6: 6](https://www.bibliaonline.com.br/acf/os/6) e [Mateus 9:13](https://padrepauloricardo.org/biblia/mt?cap=9&edition=matos-soares))
 
 ##  Material para Catecismo de Adultos
 
