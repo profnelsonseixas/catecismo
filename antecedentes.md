@@ -78,4 +78,4 @@ Abaixo estão os principais versículos e capítulos divididos por temas e evang
 
 
 
-[Anterior](roteiro.md)     [Início](index.md)       [Próximo](novotestamento.md)
+[Anterior](historiaAT.md)     [Início](index.md)       [Próximo](batismoJesus.md)
