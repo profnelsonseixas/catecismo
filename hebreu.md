@@ -85,7 +85,7 @@ A partir de 539 a.C, os judeus constrõem o **Segundo Templo**, terminando-o por
 Em 198 a.C, os judeus vivem sob o domínio dos descendentes do general grego Selêucida (Síria) e ocorre uma tentativa de impor os costumes gregos e a profanação do Segundo Templo, provocando a **Revolta dos Macabeus** em 167 a.C.  Em 63 a.C, o general romano Pompeu domina a Judéia, que passa ao domínio romano.
 
 
-
+[Anterior](roteiro.md)     [Início](index.md)       [Próximo](historiaAT.md)
 
 
 
