@@ -52,3 +52,5 @@
 - [A Imitação de Cristo Explicada por Frei Gilson](https://www.youtube.com/watch?v=6d4I43LBU_Y&list=PLCtM_OCiqzylW3nsO1kNspcCHHNJl-3Jw)
   
 - [A Santificação](https://www.youtube.com/watch?v=IiuN5psFAKM)
+
+<!-- <a href="https://www.youtube.com/watch?v=Srhfwcc5yf0">Fatos corretos, mas colocados de modo polêmico</a> -->
