@@ -133,7 +133,7 @@ Os profetas estão listados [aqui](https://biblia.paulus.com.br/biblia-pastoral/
 - [Oséias](https://biblia.paulus.com.br/biblia-pastoral/antigo-testamento/livros-profeticos/oseias), e
 - [Daniel](https://biblia.paulus.com.br/biblia-pastoral/antigo-testamento/livros-profeticos/daniel)
 
-[Anterior](historiaAT.md)     [Início](index.md)       [Próximo](novotestamento.md)
+[Anterior](hebreu.md)     [Início](index.md)       [Próximo](antecedentes.md)
 
 
 
