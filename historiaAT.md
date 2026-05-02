@@ -23,12 +23,13 @@ Os reformadores protestantes, porém, optaram por se insurgir também contra o e
 
 ### Divisão da Bíblia Judaica 
 
-##### Texto Judaico (TANAKH) (24 livros)
+##### Texto Judaico (TANAKH)
 
 1. Torá (A Lei)
 2. Nevi'im (Os Profetas)
 3. Ketuvim (Os Escritos)
 
+Há um total de 24 livros na organização judaica.
 <!--
 ##### Texto Católico (46 livros)
 
