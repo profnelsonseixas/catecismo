@@ -122,9 +122,9 @@ Os Salmos foram a base da oração dos primeiros padres, que os rezavam todos di
   
 - [Cântico dos Cânticos](https://biblia.paulus.com.br/biblia-pastoral/antigo-testamento/livros-sapienciais/cantico-dos-canticos)
 
-- [Sabedoria](https://www.bibliacatolica.com.br/biblia-ave-maria/sabedoria/1/)
+- [Sabedoria](https://www.bibliacatolica.com.br/biblia-ave-maria/sabedoria/1/) - disponível apenas na Setptuaginta
 
-- [Eclesiástico](https://biblia.paulus.com.br/biblia-pastoral/antigo-testamento/livros-sapienciais/eclesiastico)
+- [Eclesiástico](https://biblia.paulus.com.br/biblia-pastoral/antigo-testamento/livros-sapienciais/eclesiastico) - disponível apenas na Setptuaginta
 
 ## Os profetas
 
