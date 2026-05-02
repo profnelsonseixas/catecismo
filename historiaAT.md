@@ -21,9 +21,7 @@ Argumenta-se que tal foi feito a fim de distinguir a bíblia judaica da bíblia 
 
 Os reformadores protestantes, porém, optaram por se insurgir também contra o entendimento de todos os teólogos cristãos de séculos anteriores e adotaram no século XV! como Antigo Testamento apenas o texto massorético judaico que, como apontamos, só foi canonizado pelos judeus no século X d.C.
 
-### Divisão da Bíblia
-
-#### Antigo Testamento
+### Divisão da Bíblia Judaica 
 
 ##### Texto Judaico (TANAKH) (24 livros)
 
@@ -31,6 +29,7 @@ Os reformadores protestantes, porém, optaram por se insurgir também contra o e
 2. Nevi'im (Os Profetas)
 3. Ketuvim (Os Escritos)
 
+<!--
 ##### Texto Católico (46 livros)
 
 1. Pentateuco (Torá)
@@ -54,7 +53,7 @@ Os reformadores protestantes, porém, optaram por se insurgir também contra o e
 
 **Observação**: O Antigo Testamento protestante é igual ao Texto Massorético Judeu, embora a contagem do número de livros difira.  O Antigo Testamento original (Septuaginta) conta com, ao menos, 46 livros (Católico), chegando a 81 livros (Igreja Ortodoxa Etíope).
 
-
+-->
 <!-- ## Abraão, Isaac e Jacó -->
 
 ## Moisés no Êxodo 
