@@ -37,7 +37,9 @@ O sermão termina com avisos práticos:
 
 * Dois Caminhos: A porta estreita (difícil) versus a porta larga (fácil).
 * Frutos: Falsos profetas são conhecidos pelo que produzem.
-* Os Dois Fundamentos: A parábola da casa na rocha (quem ouve e pratica) e da casa na areia (quem ouve e não pratica). [19] 
+* Os Dois Fundamentos: A parábola da casa na rocha (quem ouve e pratica) e da casa na areia (quem ouve e não pratica). [19]
+
+Adicionalmente, as Parábolas de Jesus dispersas nos quatro Evangelhos são essenciais para entender o ensinamento.
 
 
 [Anterior](roteiro.md)     [Início](index.md)       [Próximo](novotestamento.md)
