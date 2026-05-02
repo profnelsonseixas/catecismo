@@ -3,13 +3,14 @@
 ## Sumário
 
 1. [A Missa e o Sacramento da Eucaristia](#a-missa-e-o-sacramento-da-eucaristia)
-2. [Sacramento da Confissão](#sacramento-da-confissão)
-3. [Ascensão](#ascensão)
-4. [Cinquenta dias após a morte de Jesus - Pentecostes e a fundação da Igreja](#cinquenta-dias-após-a-ressurreição-de-jesus---pentecostes-e-a-fundação-da-igreja)
-5. [O que é a Igreja](#o-que-é-a-igreja)
-6. [O que é oração e sua importância](#o-que-é-oração-e-sua-importância)
-7. [Como orar](#como-orar)
-8. [Maria e a tradição dos santos](#maria-e-a-tradição-dos-santos)
+2. [Paixão e Morte de Jesus](#paixão-e-morte-de-jesus)
+3. [Sacramento da Confissão](#sacramento-da-confissão)
+4. [Ascensão](#ascensão)
+5. [Cinquenta dias após a morte de Jesus - Pentecostes e a fundação da Igreja](#cinquenta-dias-após-a-ressurreição-de-jesus---pentecostes-e-a-fundação-da-igreja)
+6. [O que é a Igreja](#o-que-é-a-igreja)
+7. [O que é oração e sua importância](#o-que-é-oração-e-sua-importância)
+8. [Como orar](#como-orar)
+9. [Maria e a tradição dos santos](#maria-e-a-tradição-dos-santos)
 
 ## A Missa e o Sacramento da Eucaristia
 
@@ -18,6 +19,13 @@
 A Páscoa judaica ((em hebraico, **pessach**, que significa passagem) é a celebração da fuga do Egito, quando o povo de Israel é instruído a sacrificar um cordeiro, sem defeito (isto é, perfeito) para obter a libertação da escravidão do Egito.  O sangue do cordeiro é usado para marcar as portas e casas de todos aqueles que desejam a libertação.  Assim, após ter enviado diversas pestes ao Egito e seu Rei não se ter curvado à vontade de Deus de liberar seu povo, como último recurso para convencer o Rei do Egito a libertar o povo de Israel, Deus envia seu Anjo Exterminador para matar todos os primogênitos das casas do Egito que não estejam com as portas marcadas com sangue de um cordeiro, macho, sem defeito (isto é, perfeito) tal como descrito em [Êxodo 12-15](https://fatima.org.br/biblia-online/?book=exodo&chapter=12).
 
 A Última Ceia é a instituição por Jesus do [Sacramento da Eucaristia](https://bibliotecacatolica.com.br/blog/formacao/sacramento-da-eucaristia/) e a sua celebração se faz prioritariamente na [Missa](https://bibliotecacatolica.com.br/blog/formacao/partes-da-missa/?srsltid=AfmBOoqJrT3OTWt43XZH2AQYfgdq1KVH7Lg9y5zQ3pBm6TLo-U2R_Z8E) como renovação incruenta do sacrifício que ele faria no dia seguinte. É no dia desta celebração que Jesus (o cordeiro perfeito de Deus) escolheu ser sacrificado e, ter o seu sangue, usado para marcar as portas das casas (o coração) de todos aqueles que desejam liberar-se da escravidão do pecado (em hebraico, **chet**, que significa errar o alvo ou desviar-se do caminho). Ou seja, se você erra o objetivo da vida, que é Amar a Deus sobre tudo em todo instante, todo lugar em tudo o que faz, você é um pecador e precisa do sacrifício de Jesus, para se livrar do erro e voltar ao caminho que conduz à Vida: ou seja, todos somos pecadores!  E Jesus nos salva (ou liberta) do pecado pelo sacrifício que fez, derramando seu sangue.
+
+## Paixão e Morte de Jesus
+
+- Mateus (Capítulos 26 e 27): Enfatiza o cumprimento das profecias do Antigo Testamento e inclui detalhes como o arrependimento de Judas e o sonho da esposa de Pilatos.
+- Marcos (Capítulos 14 e 15): Apresenta o relato mais antigo e direto, focando no sofrimento e no abandono de Jesus.
+- Lucas (Capítulos 22 e 23): Destaca a misericórdia de Jesus, incluindo o diálogo com o "bom ladrão" e a oração pelos seus carrascos.
+- João (Capítulos 18 e 19): Oferece uma visão teológica profunda, mostrando um Jesus que tem controle sobre seu destino, e detalha o diálogo com Pilatos sobre a "verdade"
 
 ## Sacramento da Confissão 
 
