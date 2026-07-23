@@ -15,7 +15,7 @@
 - Hora do Jantar antes e depois de jantar agradecer brevemente a Deus Pai pelo alimento (em silêncio ou junto com a família se for o caso)
 
 - Antes de dormir: Faça algum exercício suave de alongamento e de respiração para relaxar a mente.  Depois, faça um breve exame de consciência referente ao dia, ore o Ato de Contrição e Lectio Divina com o Evangelho da Missa do Dia, fazendo a contemplação
-com o auxílio do aplicativo Silentium
+com o auxílio do aplicativo [Silentium Android](https://play.google.com/store/apps/details?id=org.wccm.silentium&hl=pt_BR) ou [Silentium iOS](https://apps.apple.com/br/app/silentium-wccm/id6753191127).
 
 ### Orientações gerais
 
@@ -32,6 +32,10 @@ pela ascese para fazer uma Lectio Divina, especialmente se houver uma tentação
 Nas sextas, faça abstenção de qualquer carne que não seja peixe e, se possível, avance para o jejum de Daniel, mas, não sendo possível, abstenha-se apenas de peixe.
 
 Em qualquer horário que seja disponível e conveniente: Terço mariano ou da Divina Misericórdia, Salmos, Vinde Espírito Santo, Pai Nosso.
+
+Além do aplicativo **Silentium** ou aplicativo [Pocket Terço](https://pocketterco.com.br/) entre muitos outros ajudam muito a seguir o caminho de vida espiritual que você traçou.
+
+Enfim, engaje-se na própria vida espiritual.  Não se deixe levar pela preguiça e não se entregue ao mundo, mas, pelo contrário, transforme o mundo, cooperando com Deus para a salvação de todos por meio de seus pensamentos, suas palavras e suas ações.
 
 
 ## Vida comunitária
