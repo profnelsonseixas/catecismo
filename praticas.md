@@ -1,5 +1,7 @@
 # Pratícas de Igreja hoje
 
+- [Plano de Vida Espiritual](plano_vida_espiritual.md)
+
 - [Oração de Invocação ao Nome de Jesus](https://www.youtube.com/watch?v=g1YNsqaR20E)
 
   [Pedido de Misericórdia e Purificação](https://www.youtube.com/watch?v=dWAwWeYmSdY)
