@@ -4,7 +4,7 @@
 
 - Ao acordar: liturgia das horas ou um agradecimento da Deus por mais este dia com a dedicação do dia a Deus
 
-- Ao longo do dia: Jaculatórias como a Oração de Jesus, Oração do Abandono a Jesus ("Jesus, eu me abandono a Ti; assuma o controle") ou qualquer outra de sua preferência
+- Ao longo do dia: Jaculatórias como a Oração de Jesus, Oração do Abandono a Jesus ("Jesus, eu me abandono a Ti; assuma o controle") ou qualquer outra de sua preferência.  O objetivo aqui é manter a mente focada em Deus.
 
 - No meio da manhã: liturgia das horas ou um salmo
 
